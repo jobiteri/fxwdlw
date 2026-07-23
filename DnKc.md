@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时24分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国中冶放量上涨2.9%，新能源冶金订单爆发</h3><br><p>央行加大结构性降息力度，精准支持数字经济领域。<br><br> | 来源：<code>https;//leqiuzhiboguanfangrukou.com.cn
+</code></p><br><br><h3>机构席位大额买入东方电缆1.8亿，海缆龙头获长线资金布局</h3><br><p>华为星闪技术大规模商用，相关产业链标的领涨。<br><br> | 来源：<code>https;//leqiuzhibomianfeiguankangaoqingban.org.cn
+</code></p><br><br><h3>中国中冶放量上涨2.9%，新能源冶金订单爆发</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>https;//leqiuzhibowuchajiantengxuntiyu.org.cn
+</code></p><br><br><h3>隆平高科种业业务爆发，前三季度业绩预增超50%</h3><br><p>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速。<br><br> | 来源：<code>https;//leqiuzhiboxiazaianzhuang.com.cn
+</code></p><br><br><h3>海缆价格上调5%，海缆龙头订单盈利弹性提升</h3><br><p>新宙邦涨超4.5%，电解液盈利预期改善。<br><br> | 来源：<code>https;//leqiuzhibozaixiankan.com.cn
+</code></p><br><br><h3>全国秸秆综合利用率达89%，农业废弃物变废为宝</h3><br><p>钯价连续上涨9%，汽车尾气催化板块盈利改善。<br><br> | 来源：<code>https;//leqiuzhibozhongchao.com.cn
+</code></p><br><br><h3>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增</h3><br><p>低空经济发展规划出台，低空经济标的拉升。<br><br> | 来源：<code>https;//mianfeideqiusaizhibo.com.cn
+</code></p><br><br><h3>中老铁路跨境游火爆，昆明至曼谷旅游团一票难求</h3><br><p>万科A异动，地产链政策宽松预期持续升温。<br><br> | 来源：<code>https;//mianfeikantiyusaishiapp.org.cn
+</code></p><br><br><h3>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情</h3><br><p>稀土价格政策调控收储，稀土永磁标的全线拉升。<br><br> | 来源：<code>https;//mianfeiqiusaizhibowangzhan.org.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金持续流入核心资产</h3><br><p>汉缆股份输配电布局：国内电缆行业的龙头成长路径。<br><br> | 来源：<code>https;//mianfeiqiusaizhibowangzhantuijian.com.cn
+</code></p><br><br><h3>白银价格单月上涨12%，贵金属板块集体异动</h3><br><p>东方电缆异动拉升5.2%，海缆订单持续落地。<br><br> | 来源：<code>https;//mianfeiqiusaizhibowangzhanxiazai.com.cn
+</code></p><br><br><h3>上半年全国软件业营收同比增长11.8%，数字产业持续向好</h3><br><p>全国运动康复中心超万家，运动损伤诊疗体系逐步完善。<br><br> | 来源：<code>https;//mianfeitiyuzhiboba.org.cn
+</code></p><br><br><h3>全国珠江流域生态补水工程启动，流域生态流量保障达标</h3><br><p>全球智能穿戴市场规模突破2000亿美元，消费电子回暖。<br><br> | 来源：<code>https;//nbamianfeizhiboleqiuzhibo.com.cn
+</code></p><br><br><h3>AI大模型企业启动申购，ToB付费转化率超行业平均水平</h3><br><p>北方稀土稀土全产业链布局：国内稀土龙头的政策红利。<br><br> | 来源：<code>https;//nbaqiusaimianfeiguankanderuanjian.com.cn
+</code></p><br><br><h3>天然气价格季节性上涨，燃气运营板块异动</h3><br><p>央行下调再贷款利率，精准支持科技创新领域。<br><br> | 来源：<code>https;//nbayuyanzhibo.org.cn
+</code></p><br><br><h3>中国男子网球选手闯入ATP巡回赛决赛，创历史最佳排名</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>https;//nbazhibojrswuchajiangaoqing.org.cn
+</code></p><br><br><h3>百亿私募组团调研碳化硅企业，车规级器件量产线投产</h3><br><p>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%。<br><br> | 来源：<code>https;//nbazhibokanqiudi.com.cn
+</code></p><br><br><h3>社保基金新进锂电回收龙头，布局循环经济高景气赛道</h3><br><p>长电科技放量上涨4.8%，先进封装订单饱满。<br><br> | 来源：<code>https;//qiusaizhibowangzhi.com.cn
+</code></p><br><br><h3>容百科技放量拉升5.5%，高镍正极渗透率持续提升</h3><br><p>泸州老窖放量上涨4.4%，国窖1573批价稳步上行。<br><br> | 来源：<code>https;//shanmaotiyumianfeizuqiuzhibo.org.cn
+</code></p><br><br><h3>全球粮食安全峰会召开，达成百亿美元援助计划应对饥荒</h3><br><p>美联储降息25BP符合市场预期，全球股市迎来普涨行情。<br><br> | 来源：<code>https;//shayuzhibopingtai.org.cn
