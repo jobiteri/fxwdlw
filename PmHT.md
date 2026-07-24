@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分54秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化</h3><br><p>海大集团研发体系：水产饲料配方技术的持续迭代能力。<br><br> | 来源：<code>https://aiqingdaodujia.org.cn
+</code></p><br><br><h3>锦浪科技涨超7.0%，组串式逆变器出口高增</h3><br><p>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍。<br><br> | 来源：<code>https://aiqingdaodujialuntan.org.cn
+</code></p><br><br><h3>国内大模型安全检测平台上线，为所有备案模型提供合规检测</h3><br><p>国内主题乐园暑期营收同比增长75%，亲子游成核心主力。<br><br> | 来源：<code>https://aiqingdaoguanfangluntan.org.cn
+</code></p><br><br><h3>全国文旅消费投诉量同比下降30%，市场秩序持续优化</h3><br><p>北向资金单日买入三安光电9000万，LED龙头获外资持续流入。<br><br> | 来源：<code>https://aiqingdaoluntan.org.cn
+</code></p><br><br><h3>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业</h3><br><p>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升。<br><br> | 来源：<code>https://aiqingdaoluntandujia.org.cn
+</code></p><br><br><h3>制造业PMI连续6个月位于扩张区间，行业景气度持续回升</h3><br><p>钙钛矿光伏组件效率破纪录，新型光伏标的拉升。<br><br> | 来源：<code>https://aiqingdaoluntandujiatigong.org.cn
+</code></p><br><br><h3>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%</h3><br><p>韦尔股份CIS芯片需求回暖，单季业绩预告扭亏。<br><br> | 来源：<code>https://aiqingdaoluntanshouye.org.cn
+</code></p><br><br><h3>上半年全国网上零售额同比增长9.5%，直播电商贡献突出</h3><br><p>洽洽食品涨超3.4%，坚果业务收入增速回升。<br><br> | 来源：<code>https://aiqingdaoluntanwangzhi.org.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿</h3><br><p>比亚迪全产业链布局分析：从电池到整车的协同优势。<br><br> | 来源：<code>https://aiqingdaoluntanyongjiuyuming.org.cn
+</code></p><br><br><h3>许继电气异动拉升4.2%，特高压订单持续落地</h3><br><p>黎以罗马谈判达成阶段性协议，以军启动南部黎巴嫩撤军。<br><br> | 来源：<code>https://aiqingdaoluntanzaixianguankan.org.cn
+</code></p><br><br><h3>降准释放资金超万亿，流动性宽松支撑A股估值抬升</h3><br><p>上半年全国显示面板出口同比增长21%，电子产业优势巩固。<br><br> | 来源：<code>https://aiqingdaoshouyeluntan.org.cn
+</code></p><br><br><h3>大秦铁路煤炭运输优势：重载铁路龙头的稳定现金流</h3><br><p>电影产业促进法修订，影视院线板块走强。<br><br> | 来源：<code>https://aiqingdaowangzhan.org.cn
+</code></p><br><br><h3>国内大模型安全检测平台上线，为所有备案模型提供合规检测</h3><br><p>杭州亚运会一周年纪念活动举办，场馆全年接待健身人次破亿。<br><br> | 来源：<code>https://aiqingdaowangzhi.org.cn
+</code></p><br><br><h3>恒瑞医药创新药管线：研发投入进入收获期的业绩展望</h3><br><p>LPR非对称下调，银行净息差压力边际缓解。<br><br> | 来源：<code>https://aiqingdaoyazhou.org.cn
+</code></p><br><br><h3>全国古籍保护工程完成，超3000万册古籍得到妥善修复</h3><br><p>上半年全国机器人产量同比增长25%，智能制造加速推进。<br><br> | 来源：<code>https://aiqingdaoyazhouluntan.org.cn
+</code></p><br><br><h3>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复</h3><br><p>中非合作论坛新举措落地，千个合作项目集中启动。<br><br> | 来源：<code>https://aiqingdaoyiluntanmianfeiluxian.org.cn
+</code></p><br><br><h3>东方财富放量大涨，券商板块异动激活市场人气</h3><br><p>全国城市马拉松赛事数量突破1500场，覆盖所有省份。<br><br> | 来源：<code>https://aiqingdaoyongjiuyuming.org.cn
+</code></p><br><br><h3>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团</h3><br><p>国内演出市场票房上半年突破200亿，演唱会经济爆发。<br><br> | 来源：<code>https://aiqingdaoyuming.org.cn
+</code></p><br><br><h3>理想汽车单季盈利超20亿，新势力车企业绩超预期</h3><br><p>天齐锂业涨超5.8%，锂矿自给率优势持续凸显。<br><br> | 来源：<code>https://aiqingdaozuixinyuming.org.cn
+</code></p><br><br><h3>跨境游持续升温，中国游客赴东南亚人次同比暴涨200%</h3><br><p>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓。<br><br> | 来源：<code>https://aiweinaiwang.com.cn
