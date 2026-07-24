@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国冲浪队首次获得世界冠军，水上运动版图持续扩大</h3><br><p>上半年全国锂电池出口同比增长32%，新能源产品出口亮眼。<br><br> | 来源：<code>https://yunuxinjing.com.cn
+</code></p><br><br><h3>多地推出名校优生引进政策，博士落户直接发放20万安家补贴</h3><br><p>降准定向支持科技创新，科技成长板块获流动性利好。<br><br> | 来源：<code>https://yuputuan.com.cn
+</code></p><br><br><h3>通威股份硅料成本优势：光伏全产业链龙头的盈利韧性</h3><br><p>全国海洋生态环境质量稳中向好，一类海水比例达78%。<br><br> | 来源：<code>https://yuputuanzhi.com.cn
+</code></p><br><br><h3>全国商品房待售面积同比下降4.3%，库存去化周期回归合理区间</h3><br><p>中国电建绿电运营：新能源电站的长期稳定现金流价值。<br><br> | 来源：<code>https://zaixian-boduoyejieyi.com.cn
+</code></p><br><br><h3>中国男子沙滩排球队闯入亚运会决赛，创历史最佳成绩</h3><br><p>全国国家公园数量增至15个，保护面积超23万平方公里。<br><br> | 来源：<code>https://zaixian-guankan.com.cn
+</code></p><br><br><h3>锰价上涨8%，锰酸锂材料板块迎来行情</h3><br><p>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露。<br><br> | 来源：<code>https://zaixian-majiangpai.com.cn
+</code></p><br><br><h3>金龙汽车海外客车出口翻倍，前三季度业绩预增超60%</h3><br><p>伊朗与沙特深化合作，双边贸易额同比暴涨80%。<br><br> | 来源：<code>https://zaixian91.cn
+</code></p><br><br><h3>国际油价大幅上涨，油气开采板块全线拉升</h3><br><p>正邦科技放量上涨4.5%，债务重组进展顺利。<br><br> | 来源：<code>https://zaixiancheng.com.cn
+</code></p><br><br><h3>丽江暑期民宿入住率达95%，云南文旅市场持续回暖</h3><br><p>宁德时代突破关键压力位，后续上涨空间与支撑位一览。<br><br> | 来源：<code>https://zaixiandou.cn
+</code></p><br><br><h3>多氟多涨超5.2%，六氟磷酸锂价格触底反弹</h3><br><p>上半年全国光伏组件出口同比增长28%，全球市场份额超92%。<br><br> | 来源：<code>https://zaixianguankan-zh.com.cn
+</code></p><br><br><h3>外资机构席位净买入先导智能8600万，锂电设备龙头加仓</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>https://zaixiangui.com.cn
+</code></p><br><br><h3>亿纬锂能多赛道布局：消费电池+动力电池+储能的协同</h3><br><p>全国荒漠化土地面积连续20年缩减，沙化治理成效突出。<br><br> | 来源：<code>https://zaixianhuangyou.com.cn
+</code></p><br><br><h3>重庆洪崖洞暑期日均游客量突破25万人次，网红城市持续火爆</h3><br><p>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露。<br><br> | 来源：<code>https://zaixianri.com.cn
+</code></p><br><br><h3>洛阳龙门石窟暑期推出夜游项目，门票上线即秒空</h3><br><p>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大。<br><br> | 来源：<code>https://zaixianriben.com.cn
+</code></p><br><br><h3>锂价连续反弹15%，锂矿板块迎来趋势性行情启动</h3><br><p>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算。<br><br> | 来源：<code>https://zenmezuoaishipin.com.cn
+</code></p><br><br><h3>城市防洪排涝政策，管网建设标的全线拉升</h3><br><p>美联储宣布降息25个基点，全球货币政策转向宽松周期。<br><br> | 来源：<code>https://zh-17c.cn
+</code></p><br><br><h3>养老金新进虚拟电厂标的，首次布局电力信息化赛道</h3><br><p>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升。<br><br> | 来源：<code>https://zh-91dongman.com.cn
+</code></p><br><br><h3>实控人兜底式增持固态电池企业，员工响应参与比例超90%</h3><br><p>CBA联赛总决赛收视率创新高，本土球员表现亮眼。<br><br> | 来源：<code>https://zh-baoyu.com.cn
+</code></p><br><br><h3>宁夏沙坡头暑期沙漠游热度高，日均接待游客超3万人次</h3><br><p>白酒行业产业政策引导，高端白酒板块集体上涨。<br><br> | 来源：<code>https://zh-bytv.com.cn
+</code></p><br><br><h3>主题乐园暑期游客量突破1亿人次，IP衍生消费持续增长</h3><br><p>实控人邀约收购家电出海龙头，溢价30%发起全面要约。<br><br> | 来源：<code>https://zh-caoliushequ.cn
