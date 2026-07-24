@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分03秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>铜版纸价格单月上涨7%，造纸细分板块迎来行情</h3><br><p>散户最容易踩的坑：涨一点就卖，跌一点就割，最后两头亏。<br><br> | 来源：<code>https://waiwaimanhua.com.cn
+</code></p><br><br><h3>全球数字贸易规模突破8万亿美元，跨境电商成核心驱动力</h3><br><p>北向资金举牌广告营销龙头，AI营销高增获外资持续流入。<br><br> | 来源：<code>https://wan-bo-tiyu.com.cn
+</code></p><br><br><h3>宁德时代突破关键压力位，后续上涨空间与支撑位一览</h3><br><p>上半年全国新能源汽车电池出口同比增长40%。<br><br> | 来源：<code>https://wang91.com.cn
+</code></p><br><br><h3>亿纬锂能储能订单爆发，前三季度业绩预增90%</h3><br><p>全国青少年体育赛事覆盖所有项目，参赛人次突破千万。<br><br> | 来源：<code>https://wangye-banmianfei91.com.cn
+</code></p><br><br><h3>国产EDA工具实现全流程覆盖，半导体软件标的走强</h3><br><p>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化。<br><br> | 来源：<code>https://wangyeban91.cn
+</code></p><br><br><h3>央行下调SLF利率，货币政策宽松取向进一步明确</h3><br><p>养老金新进创新药龙头，布局创新管线长期成长逻辑。<br><br> | 来源：<code>https://wangyebanmianfei91.com.cn
+</code></p><br><br><h3>五粮液重回160元，关键点位的多空博弈分析</h3><br><p>上海推出“夜生活节”，夜间商户营业额同比增长60%。<br><br> | 来源：<code>https://wanmei-sports-go.com.cn
+</code></p><br><br><h3>海南自贸港封关运作倒计时，海南本地股全线异动</h3><br><p>国电南瑞电力数字化：新型电力系统建设下的长期受益。<br><br> | 来源：<code>https://wap-mitaoshipin.com.cn
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>外资机构席位净买入中国电建1.1亿，绿电运营龙头获外资加仓。<br><br> | 来源：<code>https://wap-mogushipin.com.cn
+</code></p><br><br><h3>通威股份低位反弹，超跌后的修复行情持续性判断</h3><br><p>陕西历史博物馆暑期预约一票难求，单日接待量突破4万人次。<br><br> | 来源：<code>https://web-19tiyu.com.cn
+</code></p><br><br><h3>正泰电器户用光伏装机超预期，前三季度业绩预增超25%</h3><br><p>5年期LPR下调带动居民购房意愿回升，地产销售边际改善。<br><br> | 来源：<code>https://web-beibo-sports.com.cn
+</code></p><br><br><h3>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析</h3><br><p>全国农产品网络零售额上半年突破3500亿元，助力乡村振兴。<br><br> | 来源：<code>https://web-jiubo-sports.com.cn
+</code></p><br><br><h3>铁矿石价格反弹10%，铁矿上市公司盈利边际改善</h3><br><p>亿纬锂能放量上涨6.4%，储能电池出货量翻倍。<br><br> | 来源：<code>https://web-ld-tiyu.com.cn
+</code></p><br><br><h3>智能网联汽车准入试点落地，车路协同标的拉升</h3><br><p>中国手球俱乐部首次获得亚洲冠军，项目发展迎来新机遇。<br><br> | 来源：<code>https://web-mitao.com.cn
+</code></p><br><br><h3>招商公路涨超2.4%，公路运营龙头价值凸显</h3><br><p>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏。<br><br> | 来源：<code>https://web-mitaoshipin.com.cn
+</code></p><br><br><h3>中国女子足球闯入世界杯四强，创造历史最佳战绩</h3><br><p>上半年全国软件业营收同比增长11.8%，数字产业持续向好。<br><br> | 来源：<code>https://web-mogushipin.com.cn
+</code></p><br><br><h3>央行下调SLF利率，货币政策宽松取向进一步明确</h3><br><p>新能源汽车换电模式推广政策，换电产业链拉升。<br><br> | 来源：<code>https://web-qianyi-sports.com.cn
+</code></p><br><br><h3>NBA季后赛中国球员首次夺冠，创造亚洲篮球历史</h3><br><p>全国地热能源开发利用规模突破5000万吨标准煤。<br><br> | 来源：<code>https://web-qs-tiyu.com.cn
+</code></p><br><br><h3>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩</h3><br><p>俄乌冲突交换战俘达成协议，千名被俘人员获释。<br><br> | 来源：<code>https://web-tk-sports.com.cn
+</code></p><br><br><h3>平高电气特高压开关技术：输配电设备龙头的国产替代</h3><br><p>上半年全国显示面板出口同比增长21%，电子产业优势巩固。<br><br> | 来源：<code>https://web-ym-tiyu.com.cn
