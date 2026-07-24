@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分51秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>贵州茅台站稳年线，趋势反转信号逐步确认</h3><br><p>市场情绪疯狂时要冷静，情绪低迷时要保持信心。<br><br> | 来源：<code>https://xiaobaoxunhuazaixianguankan.cn
+</code></p><br><br><h3>北向资金连续增持核电设备龙头，近1月持仓增幅超25%</h3><br><p>全国固定资产投资同比增长5.1%，制造业投资增速领先。<br><br> | 来源：<code>https://xiaocaoav.cn
+</code></p><br><br><h3>国家统计局发布新动能指数，同比增长17%创新高</h3><br><p>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升。<br><br> | 来源：<code>https://xiaochaihu.com.cn
+</code></p><br><br><h3>公募基金集中调研智慧交通标的，车路协同项目落地节奏</h3><br><p>北向资金大额扫货大金重工5100万，塔筒龙头获外资流入。<br><br> | 来源：<code>https://xiaogoukan-fan.com.cn
+</code></p><br><br><h3>养老金新进车载芯片龙头，布局车规级半导体赛道</h3><br><p>三星堆新出土文物超千件，古蜀文明研究取得重大突破。<br><br> | 来源：<code>https://xiaogouzhuiman.com.cn
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>全国疫苗接种覆盖率保持99%以上，免疫规划覆盖所有适龄人群。<br><br> | 来源：<code>https://xiaohoukanfan.com.cn
+</code></p><br><br><h3>招商银行沿20日均线上行，稳健标的的持仓节奏</h3><br><p>国产儿童动画全网播放量突破250亿，陪伴新一代青少年成长。<br><br> | 来源：<code>https://xiaohuangyou.com.cn
+</code></p><br><br><h3>中国中车全球轨道交通布局：一带一路带来的增量空间</h3><br><p>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解。<br><br> | 来源：<code>https://xiaohukanfan.com.cn
+</code></p><br><br><h3>全国石漠化土地面积持续缩减，治理率超60%</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>https://xiaoluoli.com.cn
+</code></p><br><br><h3>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%</h3><br><p>天邦食品涨超4.1%，养殖业务减亏效果显著。<br><br> | 来源：<code>https://xiaomogu.com.cn
+</code></p><br><br><h3>海康威视W底形态确立，底部反转信号明确</h3><br><p>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间。<br><br> | 来源：<code>https://xiaoshuhuang.cn
+</code></p><br><br><h3>铂价上涨10%，燃料电池催化剂板块迎来涨价催化</h3><br><p>北方稀土突破前期平台，短线弹性有望释放。<br><br> | 来源：<code>https://xiaoshuikanfan.com.cn
+</code></p><br><br><h3>长电科技先进封装技术：全球封测龙头的份额提升逻辑</h3><br><p>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定。<br><br> | 来源：<code>https://xiaoxinnai.com.cn
+</code></p><br><br><h3>超170家机构到访PCB龙头，AI服务器板订单同比翻倍</h3><br><p>小康股份涨超7.7%，新能源汽车业务盈利修复。<br><br> | 来源：<code>https://xiaoxuewang.com.cn
+</code></p><br><br><h3>隆平高科转基因优势：种业商业化政策放开下的龙头受益</h3><br><p>北约峰会发布新战略文件，调整东翼防御部署。<br><br> | 来源：<code>https://xiaoyangmanguan.com.cn
+</code></p><br><br><h3>国电南瑞电网自动化优势：国内电网信息化龙头的价值</h3><br><p>百亿私募组团到访人形机器人标的，核心零部件产能引关注。<br><br> | 来源：<code>https://xiaoyuanchunse.com.cn
+</code></p><br><br><h3>多地推出“文旅+体育”融合产品，马拉松、徒步游订单激增</h3><br><p>外资机构席位净买入江铃汽车4600万，轻卡龙头获外资加仓。<br><br> | 来源：<code>https://xiaoyuandongmanku.com.cn
+</code></p><br><br><h3>北方华创涨超6.3%，半导体设备国产替代进度提速</h3><br><p>国内宠物友好景区破千家，携宠游订单同比增长180%。<br><br> | 来源：<code>https://xiaozemaliya.com.cn
+</code></p><br><br><h3>游资顶级席位打板亨通光电5400万，海缆标的获热炒</h3><br><p>宁德时代商业模式拆解：动力电池龙头的护城河有多深。<br><br> | 来源：<code>https://xie-shen-chang-guan.com.cn
+</code></p><br><br><h3>进口博览会政策红利，进口贸易板块全线走强</h3><br><p>调味品行业标准升级，调味品龙头板块走强。<br><br> | 来源：<code>https://xin-pujing-yingshi.com.cn
