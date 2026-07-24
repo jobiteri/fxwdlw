@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中韩经贸合作升级，双边自贸协定第二阶段谈判完成</h3><br><p>中国男子帆船队亚运会夺冠，水上项目实现新突破。<br><br> | 来源：<code>https://sports-plat-go.com.cn
+</code></p><br><br><h3>中国中铁放量上涨3.0%，一带一路订单同比翻倍</h3><br><p>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级。<br><br> | 来源：<code>https://squirt.net.cn
+</code></p><br><br><h3>多地推出名校优生引进政策，博士落户直接发放20万安家补贴</h3><br><p>大模型在农业病虫害防治领域应用，减少农药使用20%。<br><br> | 来源：<code>https://squirting.net.cn
+</code></p><br><br><h3>国产动画电影票房上半年突破80亿元，国漫IP影响力扩大</h3><br><p>全面降准叠加LPR下调，市场流动性环境显著优化。<br><br> | 来源：<code>https://star-tv.com.cn
+</code></p><br><br><h3>游资知名席位联手买入固德威5000万，储能标的获追捧</h3><br><p>安琪酵母全球布局：酵母行业全球龙头的份额扩张逻辑。<br><br> | 来源：<code>https://suboshi-vip-web.com
+</code></p><br><br><h3>5年期LPR下调带动居民购房意愿回升，地产销售边际改善</h3><br><p>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升。<br><br> | 来源：<code>https://ta-basi.com.cn
+</code></p><br><br><h3>全国南水北调沿线生态廊道建成，水质稳定保持Ⅱ类</h3><br><p>东方电缆异动拉升5.2%，海缆订单持续落地。<br><br> | 来源：<code>https://taiziqianqiuwanzai.com.cn
+</code></p><br><br><h3>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性</h3><br><p>赛力斯单日大涨8.3%，问界新车型销量引爆市场。<br><br> | 来源：<code>https://tang-xin.com.cn
+</code></p><br><br><h3>算力基础设施建设指导意见，算力板块全线走强</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>https://tang-xinpojieban.com.cn
+</code></p><br><br><h3>锂矿板块触底反弹：行业拐点是否已经正式确立</h3><br><p>天然气价格季节性上涨，燃气运营板块异动。<br><br> | 来源：<code>https://tang-xinvlog.com.cn
+</code></p><br><br><h3>中韩经贸合作升级，双边自贸协定第二阶段谈判完成</h3><br><p>超280家机构到访工业母机龙头，五轴机床量产进度超预期。<br><br> | 来源：<code>https://tangguo-jiguan-tafang.com
+</code></p><br><br><h3>钯价连续上涨9%，汽车尾气催化板块盈利改善</h3><br><p>全国碳排放权交易市场成交额突破200亿元，碳定价机制完善。<br><br> | 来源：<code>https://tangguo-paidui-tafang.com
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>北向资金单日净流入120亿，核心资产获外资集中扫货。<br><br> | 来源：<code>https://tangxinchuanmei.com.cn
+</code></p><br><br><h3>存款利率市场化调整机制优化，银行负债端成本进一步压降</h3><br><p>中国电竞战队斩获英雄联盟S14全球总决赛冠军。<br><br> | 来源：<code>https://tangxinshipinzaixianguankan.com.cn
+</code></p><br><br><h3>全球智能家居市场规模突破1万亿美元，智慧家庭普及</h3><br><p>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%。<br><br> | 来源：<code>https://tanxiongluru.com.cn
+</code></p><br><br><h3>美联储降息后全球流动性宽松，成长板块估值抬升</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>https://taohong-shipin.com.cn
+</code></p><br><br><h3>实控人溢价20%增持氢能龙头，传递公司价值被低估信号</h3><br><p>建筑光伏一体化政策，BIPV标的全线拉升。<br><br> | 来源：<code>https://taose-shipin.com.cn
+</code></p><br><br><h3>全国二手房市场活跃度回升，成交量连续3个月环比上涨</h3><br><p>农村物流体系建设规划，乡村物流标的全线异动。<br><br> | 来源：<code>https://taozishipinapp.com.cn
+</code></p><br><br><h3>全国江豚种群数量突破2000头，长江微笑天使重现</h3><br><p>全国钢铁行业超低排放改造完成，减排效果达国际先进水平。<br><br> | 来源：<code>https://tian-bo-tiyu.com.cn
+</code></p><br><br><h3>美联储第三次降息落地，全球风险偏好显著提升</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>https://tian-mei-chuanmei.com.cn
