@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分15秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国平安综合金融版图：保险龙头的转型进展与空间</h3><br><p>全球教育科技市场规模突破4000亿美元，线上教育持续普及。<br><br> | 来源：<code>https://ky-sports-go.com.cn
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%。<br><br> | 来源：<code>https://ky-sports-hub.com.cn
+</code></p><br><br><h3>全国青少年篮球联赛参赛人数破百万，校园篮球氛围火爆</h3><br><p>国内宠物友好景区破千家，携宠游订单同比增长180%。<br><br> | 来源：<code>https://lalal.com.cn
+</code></p><br><br><h3>北京君正车载存储优势：汽车电子赛道的高景气受益标的</h3><br><p>黄山暑期单日客流破4万，山顶酒店提前半个月售罄。<br><br> | 来源：<code>https://lang-lang-shipin.com.cn
+</code></p><br><br><h3>全国公立医院绩效考核连续5年提升，医疗服务质量持续改善</h3><br><p>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露。<br><br> | 来源：<code>https://lao-qi-wang.com.cn
+</code></p><br><br><h3>全国首套房住房贷款"认房不认贷"政策全面落地</h3><br><p>大金重工塔筒全球布局：风电塔筒全球龙头的份额优势。<br><br> | 来源：<code>https://laoliuziyuanku.org.cn
+</code></p><br><br><h3>美国通胀回落至2.5%，为后续进一步降息打开空间</h3><br><p>央行宣布定向降准1个百分点，精准支持普惠金融领域。<br><br> | 来源：<code>https://laosijidaohang.org.cn
+</code></p><br><br><h3>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析</h3><br><p>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨。<br><br> | 来源：<code>https://laosijiyuming.org.cn
+</code></p><br><br><h3>海康威视AI转型进展：传统安防龙头的第二成长曲线</h3><br><p>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划。<br><br> | 来源：<code>https://leyusaishi.com.cn
+</code></p><br><br><h3>全国家政服务业营收上半年同比增长16%，民生消费升温</h3><br><p>中国男子射击队世锦赛斩获6金，奥运席位全部拿满。<br><br> | 来源：<code>https://liangnuyibei.com.cn
+</code></p><br><br><h3>医美监管政策优化，医美消费标的全线拉升</h3><br><p>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域。<br><br> | 来源：<code>https://liboqiubao.com.cn
+</code></p><br><br><h3>万科A地产龙头抗风险能力：行业调整期的稳健经营逻辑</h3><br><p>中国中铁一带一路订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://lifandongmanmanhua.org.cn
+</code></p><br><br><h3>北向资金举牌人形机器人标的，持股比例首次突破5%红线</h3><br><p>医疗器械集采结果温和，医疗设备标的全线异动。<br><br> | 来源：<code>https://limandongman.com.cn
+</code></p><br><br><h3>中际旭创800G光模块放量，前三季度业绩预增130%</h3><br><p>中国中铁放量上涨3.0%，一带一路订单同比翻倍。<br><br> | 来源：<code>https://liuhe-baodian.com.cn
+</code></p><br><br><h3>隆基绿能成本优势解析：光伏龙头如何持续领跑行业</h3><br><p>中国中车海外订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://liuhecai-ziliao.com.cn
+</code></p><br><br><h3>全球元宇宙相关产业规模突破2万亿美元，应用场景拓展</h3><br><p>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才。<br><br> | 来源：<code>https://liulanqi91.cn
+</code></p><br><br><h3>中国建筑基建订单饱满，前三季度业绩预增超12%</h3><br><p>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%。<br><br> | 来源：<code>https://login-kaiyun-pro.com.cn
+</code></p><br><br><h3>华友钴业全产业链布局：新能源金属的全球龙头成长路径</h3><br><p>保险资管扎堆调研航空发动机标的，量产交付进度引关注。<br><br> | 来源：<code>https://lou-fengxinxi.cn
+</code></p><br><br><h3>1年期LPR下调降低企业短期融资成本，经营活力提升</h3><br><p>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓。<br><br> | 来源：<code>https://lu-alu.com.cn
+</code></p><br><br><h3>美联储降息后美元指数走弱，大宗商品价格迎来反弹</h3><br><p>杀虫剂价格上涨12%，农化产业链景气回升。<br><br> | 来源：<code>https://lu-lushe.com.cn
