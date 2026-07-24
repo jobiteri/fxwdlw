@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>AI大模型企业启动申购，ToB付费转化率超行业平均水平</h3><br><p>贵州暑期游客量突破7000万人次，山地旅游品牌影响力扩大。<br><br> | 来源：<code>https://jm-web-official.com
+</code></p><br><br><h3>2026年全球经济增速达3.2%，实现温和复苏稳步增长</h3><br><p>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放。<br><br> | 来源：<code>https://jmcomic-com.com.cn
+</code></p><br><br><h3>亿纬锂能涨超6%，储能业务新增订单持续落地</h3><br><p>药明康德单日涨超5%，CXO板块迎来情绪拐点。<br><br> | 来源：<code>https://jmcomiccom.com.cn
+</code></p><br><br><h3>降准释放长期资金支持基建，建筑板块迎来估值修复</h3><br><p>北向资金连续5日加仓贵州茅台，持仓占比创历史新高。<br><br> | 来源：<code>https://jmcomicwang.com.cn
+</code></p><br><br><h3>北京建工放量上涨3.0%，京津冀基建项目落地加速</h3><br><p>山东高速区域路网优势：山东公路运营龙头的稳健经营。<br><br> | 来源：<code>https://jmcomicwangyeban.com.cn
+</code></p><br><br><h3>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购</h3><br><p>全球循环经济市场规模突破5万亿美元，资源利用效率提升。<br><br> | 来源：<code>https://jmcomiczzzone.com.cn
+</code></p><br><br><h3>A股总市值突破90万亿元，资本市场改革红利持续释放</h3><br><p>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧。<br><br> | 来源：<code>https://jmmanhua.com.cn
+</code></p><br><br><h3>全国医院预约挂号覆盖率达100%，平均就诊时间缩短至1小时内</h3><br><p>2026年文旅市场全面繁荣，文化自信融入大众日常生活。<br><br> | 来源：<code>https://jmtiantangwang.com.cn
+</code></p><br><br><h3>北约峰会发布新战略文件，调整东翼防御部署</h3><br><p>全国碳捕集利用与封存项目年处理能力突破1500万吨。<br><br> | 来源：<code>https://jmwangyeban.com.cn
+</code></p><br><br><h3>机构资金集中买入牧原股份2.5亿，养殖龙头获机构抱团</h3><br><p>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算。<br><br> | 来源：<code>https://js9001vip-official-login.com
+</code></p><br><br><h3>海洋强国建设新规划发布，海洋经济总量突破9万亿元</h3><br><p>中兴通讯通信技术积累：6G时代的核心竞争力展望。<br><br> | 来源：<code>https://k1-sports-trust.com
+</code></p><br><br><h3>全国公共图书馆年流通人次突破10亿，全民阅读氛围浓厚</h3><br><p>江特电机触底反弹5.9%，锂盐价格企稳回升。<br><br> | 来源：<code>https://kai-sports-live.com.cn
+</code></p><br><br><h3>国产儿童动画全网播放量突破250亿，陪伴新一代青少年成长</h3><br><p>产业链产品涨价类（100个）。<br><br> | 来源：<code>https://kai-yun-tiyu-guan-wang.com.cn
+</code></p><br><br><h3>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>https://kaiyuan-board-hub.com.cn
+</code></p><br><br><h3>公募基金集中调研IDC龙头，AI算力上架率创历史新高</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>https://kaiyuan-qipai-pro.com.cn
+</code></p><br><br><h3>比亚迪Q3销量破百万，业绩预告同比翻倍</h3><br><p>长电科技先进封装放量，前三季度业绩预增超50%。<br><br> | 来源：<code>https://kaiyuan-sports-pro.com.cn
+</code></p><br><br><h3>全国小微企业贷款余额突破60万亿元，融资成本进一步下降</h3><br><p>中国男子乒乓球队世乒赛团体夺冠，实现十一连冠伟业。<br><br> | 来源：<code>https://kaiyuan-tiyu.com.cn
+</code></p><br><br><h3>中国五子棋队世锦赛包揽金牌，智力运动版图持续扩大</h3><br><p>宝钢股份绿色低碳优势：钢铁行业碳中和下的领先地位。<br><br> | 来源：<code>https://kaiyun-access-pro.com.cn
+</code></p><br><br><h3>机构席位大额买入澜起科技8500万，内存芯片龙头获布局</h3><br><p>大秦铁路煤炭运输优势：重载铁路龙头的稳定现金流。<br><br> | 来源：<code>https://kaiyun-com-go.com.cn
+</code></p><br><br><h3>糖果产品价格上调6%，休闲食品全产业链景气回升</h3><br><p>跨境电商出口高增，跨境电商板块全线爆发。<br><br> | 来源：<code>https://kaiyun-com-hq.com.cn
