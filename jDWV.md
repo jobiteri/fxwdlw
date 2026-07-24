@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国淮河生态经济带建设推进，流域水质优良比例达95%</h3><br><p>地方国资战略入股氢能燃料电池标的，助力商用车推广落地。<br><br> | 来源：<code>https://rihanzaixian.com.cn
+</code></p><br><br><h3>高管团队集体调研后增持冷链物流标的，合计增持超8000万</h3><br><p>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露。<br><br> | 来源：<code>https://rihanzaixianmianfeiguankan.com.cn
+</code></p><br><br><h3>上汽集团放量上涨3.5%，新能源汽车出口超预期</h3><br><p>机构+北向合力买入紫光国微1.5亿，军工芯片标的获资金布局。<br><br> | 来源：<code>https://rihanzaixianyongjiuyuming.com.cn
+</code></p><br><br><h3>光伏行业产能置换政策落地，落后产能出清标的异动</h3><br><p>大金重工塔筒全球布局：风电塔筒全球龙头的份额优势。<br><br> | 来源：<code>https://ririshipin.com.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金单周净流入超300亿</h3><br><p>奥地利经济复苏，旅游业和制造业双回暖。<br><br> | 来源：<code>https://rou-rou-wu.com.cn
+</code></p><br><br><h3>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%</h3><br><p>华友钴业异动拉升5.3%，新能源金属需求回暖。<br><br> | 来源：<code>https://rouputuan.com.cn
+</code></p><br><br><h3>小鹏汽车单季交付破3万，业绩亏损大幅收窄</h3><br><p>逆向投资不是盲目抄底：在行业逻辑反转时布局，胜率才最高。<br><br> | 来源：<code>https://rpghuangyou.com.cn
+</code></p><br><br><h3>医美监管政策优化，医美消费标的全线拉升</h3><br><p>医美监管政策优化，医美消费标的全线拉升。<br><br> | 来源：<code>https://ruanmengtutujiang.com.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金单周净流入超300亿</h3><br><p>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放。<br><br> | 来源：<code>https://rugzdf.cn
+</code></p><br><br><h3>泰山暑期单日登顶客流破6万，夜间登山游客占比超70%</h3><br><p>北汽蓝谷异动拉升5.3%，极狐品牌销量边际改善。<br><br> | 来源：<code>https://rumengshequ.cn
+</code></p><br><br><h3>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势</h3><br><p>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速。<br><br> | 来源：<code>https://rusetuxidongman.com.cn
+</code></p><br><br><h3>泸州老窖品牌梯队建设：国窖+特曲的全价格带覆盖</h3><br><p>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色。<br><br> | 来源：<code>https://rutoujiaojiazu.com.cn
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>国产游戏上半年出海营收突破80亿美元，文化输出能力增强。<br><br> | 来源：<code>https://rutoujiaojiazuzaixianguankan.com.cn
+</code></p><br><br><h3>全国马拉松赛事超500场，全年参赛人次破700万</h3><br><p>头部公募调研汽车电子标的，车规芯片出货量环比大增。<br><br> | 来源：<code>https://rutoujiazu.com.cn
+</code></p><br><br><h3>存量房贷利率下调释放居民现金流，可选消费板块受益</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>https://san-shangyouya.com.cn
+</code></p><br><br><h3>企业中长期贷款增速回升，宽信用效果逐步显现</h3><br><p>外资单日扫货药明康德18亿，CXO赛道获外资集中流入。<br><br> | 来源：<code>https://sands9570.com
+</code></p><br><br><h3>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%</h3><br><p>金龙汽车海外客车出口：客车行业龙头的海外拓展逻辑。<br><br> | 来源：<code>https://sanji-dianying.com.cn
+</code></p><br><br><h3>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场</h3><br><p>天津推出“夜津城”活动，相声演出夜间场次一票难求。<br><br> | 来源：<code>https://sanjipian-zh.com.cn
+</code></p><br><br><h3>北京国际铁人三项赛举办，吸引全球千名选手参赛</h3><br><p>医疗大模型辅助手术落地，精准操作误差控制在0.1毫米。<br><br> | 来源：<code>https://sanquyi.com.cn
+</code></p><br><br><h3>全球储能市场规模突破500GWh，新型电力系统建设提速</h3><br><p>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励。<br><br> | 来源：<code>https://se-daohang.cn
