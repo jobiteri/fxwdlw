@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分05秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>生猪价格突破18元/公斤，养殖板块盈利拐点显现</h3><br><p>市场永远不缺机会，缺的是耐心等待属于自己的机会。<br><br> | 来源：<code>https://zh-jin-man-tiantang.com.cn
+</code></p><br><br><h3>山西路桥放量上涨3.2%，山西交通基建投资加码</h3><br><p>食品质量安全监管优化，头部食品标的拉升。<br><br> | 来源：<code>https://zh-jinmantiantang.com.cn
+</code></p><br><br><h3>中国男足晋级世界杯预选赛亚洲区18强，创造近年最佳战绩</h3><br><p>赛力斯用户运营优势：华为赋能下的用户体验提升逻辑。<br><br> | 来源：<code>https://zh-jm-comic.com.cn
+</code></p><br><br><h3>高股息板块持续受宠：银行、保险、煤炭的配置价值分析</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>https://zh-jm-tiantang.com.cn
+</code></p><br><br><h3>中国女子棒球队闯入世界杯八强，项目发展迎来新机遇</h3><br><p>游资知名席位联手买入赛力斯1.4亿，整车标的获资金追捧。<br><br> | 来源：<code>https://zh-jmcomic.com.cn
+</code></p><br><br><h3>休闲食品开启涨价潮，食品加工板块盈利弹性释放</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>https://zh-jmtt.com.cn
+</code></p><br><br><h3>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放</h3><br><p>洋河梦之蓝批价上调4%，白酒全产业链盈利优化。<br><br> | 来源：<code>https://zh-kan-pian-wangzhan.com.cn
+</code></p><br><br><h3>山东"三孔"景区暑期接待游客超200万人次，传统文化游升温</h3><br><p>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定。<br><br> | 来源：<code>https://zh-koujiao.com.cn
+</code></p><br><br><h3>江淮汽车异动拉升4.7%，与华为合作车型落地加速</h3><br><p>机构资金联手买入派能科技1.7亿，储能龙头获机构抱团。<br><br> | 来源：<code>https://zh-loli.com.cn
+</code></p><br><br><h3>北向资金连续流入紫金矿业，黄金龙头外资持仓持续提升</h3><br><p>全国马拉松赛事上半年举办超500场，参赛人次突破600万。<br><br> | 来源：<code>https://zh-lolicon.com.cn
+</code></p><br><br><h3>美联储降息预期升温，全球权益资产联动走强</h3><br><p>中天科技海缆+储能协同：多元化能源企业的成长逻辑。<br><br> | 来源：<code>https://zh-lolita.com.cn
+</code></p><br><br><h3>全国体育旅游精品线路超千条，带动沿线经济发展</h3><br><p>全球碳交易市场规模突破5000亿美元，助力双碳目标。<br><br> | 来源：<code>https://zh-luanlun.com.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑。<br><br> | 来源：<code>https://zh-luolita.com.cn
+</code></p><br><br><h3>海大集团涨超3.5%，饲料业务市占率稳步提升</h3><br><p>北向资金单日买入福耀玻璃7200万，玻璃龙头获外资持续流入。<br><br> | 来源：<code>https://zh-luotimeinu.com.cn
+</code></p><br><br><h3>全国医院预约挂号覆盖率达100%，平均就诊时间缩短至1小时内</h3><br><p>金龙汽车涨超3.6%，新能源客车订单持续落地。<br><br> | 来源：<code>https://zh-madoushipin.com.cn
+</code></p><br><br><h3>体育产业消费刺激政策，体育消费标的全线异动</h3><br><p>长三角一体化新规划落地，长三角本地股集体拉升。<br><br> | 来源：<code>https://zh-meiri-dasai.com.cn
+</code></p><br><br><h3>敬畏市场：无论你研究得多深，市场永远有你预料不到的变化</h3><br><p>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放。<br><br> | 来源：<code>https://zh-mianfeidianying.com.cn
+</code></p><br><br><h3>央行下调MLF利率10BP，货币政策宽松力度加大</h3><br><p>全国金丝猴种群数量突破4万只，多个栖息地生态改善。<br><br> | 来源：<code>https://zh-mitao-yingshi.com.cn
+</code></p><br><br><h3>国电南瑞电力数字化：新型电力系统建设下的长期受益</h3><br><p>工业大模型落地万座工厂，生产效率平均提升30%。<br><br> | 来源：<code>https://zh-mitaochuanmei.com.cn
+</code></p><br><br><h3>AI图像识别技术突破，缺陷检测准确率超99.5%</h3><br><p>西安马拉松开跑，穿越古城墙赛道吸引超3万跑者参与。<br><br> | 来源：<code>https://zh-mitaoshipin.com.cn
