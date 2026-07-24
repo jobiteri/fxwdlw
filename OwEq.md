@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%。<br><br> | 来源：<code>https://91-chiguawang.com.cn
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>敦煌莫高窟数字展示中心升级，游客沉浸式体验千年壁画。<br><br> | 来源：<code>https://91-ci-yuan.com.cn
+</code></p><br><br><h3>美的集团创年内新高，多头排列下的趋势延续性</h3><br><p>百亿私募组团调研碳纤维企业，风电领域应用占比突破60%。<br><br> | 来源：<code>https://91-ciyuan.com.cn
+</code></p><br><br><h3>黄山暑期单日客流破4万，山顶酒店提前半个月售罄</h3><br><p>天赐材料异动拉升4.9%，电解液龙头成本优势凸显。<br><br> | 来源：<code>https://91-com.com.cn
+</code></p><br><br><h3>外资机构席位净买入双汇发展6400万，肉制品龙头获加仓</h3><br><p>上半年全国财政收入同比增长3.7%，民生支出占比超70%。<br><br> | 来源：<code>https://91-dapian.com.cn
+</code></p><br><br><h3>京沪高铁涨超2.9%，暑运客流数据超预期</h3><br><p>存储模组龙头登陆科创板，AI存储产品出货量超行业预期。<br><br> | 来源：<code>https://91-down.com.cn
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>高管团队集体增持工业AI龙头，合计增持金额超2.3亿。<br><br> | 来源：<code>https://91-guanwang.com.cn
+</code></p><br><br><h3>游资顶级席位打板亨通光电5400万，海缆标的获热炒</h3><br><p>广汽集团涨超4.8%，埃安品牌月销破5万。<br><br> | 来源：<code>https://91-mianfei.com.cn
+</code></p><br><br><h3>海螺水泥成本控制能力：水泥行业龙头的长期盈利韧性</h3><br><p>化肥价格集体上涨，农资板块迎来产品涨价催化。<br><br> | 来源：<code>https://91-mianfeiban.com.cn
+</code></p><br><br><h3>美联储连续降息后美元走弱，原油价格迎来趋势性反弹</h3><br><p>邮轮旅游市场重启，上半年国际邮轮订单同比增长300%。<br><br> | 来源：<code>https://91-mianfeishipin.com.cn
+</code></p><br><br><h3>全国绿色物流示范城市创建，快递电动化率达95%</h3><br><p>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩。<br><br> | 来源：<code>https://91-mianfeiwang.cn
+</code></p><br><br><h3>全国碳捕集利用与封存项目年处理能力突破1500万吨</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>https://91-mitao.com.cn
+</code></p><br><br><h3>机构+北向资金合力买入比亚迪9亿，整车龙头获资金认可</h3><br><p>上半年出境游人次突破8000万，跨境旅游全面复苏。<br><br> | 来源：<code>https://91-n.cn
+</code></p><br><br><h3>全国职业病防治体系完善，劳动者健康权益得到全面保障</h3><br><p>平遥古城暑期推出实景演出，夜间场次上座率超100%。<br><br> | 来源：<code>https://91-n.com.cn
+</code></p><br><br><h3>酱油价格单月上涨5%，调味品龙头盈利弹性释放</h3><br><p>北向资金单日净流入超150亿，降息后外资加速入场。<br><br> | 来源：<code>https://91-shipinwang.com.cn
+</code></p><br><br><h3>公募基金集中调研IDC龙头，AI算力上架率创历史新高</h3><br><p>知名私募调研量子通信标的，干线网络建设落地节奏披露。<br><br> | 来源：<code>https://91-shipinwangzhan.com.cn
+</code></p><br><br><h3>西部大开发新规划出台，西部基建标的全线拉升</h3><br><p>社保基金新进锂电回收龙头，布局循环经济高景气赛道。<br><br> | 来源：<code>https://91-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>产业资本集中增持AI教育龙头，付费用户高增获资本布局</h3><br><p>中国藤球队世锦赛包揽金牌，传统优势项目持续巩固。<br><br> | 来源：<code>https://91-tv.com.cn
+</code></p><br><br><h3>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏</h3><br><p>2026年美丽中国建设成效显著，绿色发展底色更加鲜明。<br><br> | 来源：<code>https://91-wang.com.cn
+</code></p><br><br><h3>百亿私募组团调研碳化硅企业，车规级器件量产线投产</h3><br><p>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算。<br><br> | 来源：<code>https://91-www.cn
