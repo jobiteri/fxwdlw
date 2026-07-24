@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>固德威放量上涨7.2%，户用储能业务爆发式增长</h3><br><p>万科A异动，地产链政策宽松预期持续升温。<br><br> | 来源：<code>https://2pg-login-reg.com
+</code></p><br><br><h3>全国城市篮球联赛举办，覆盖百城参赛队伍破万支</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>https://3dshipin.com.cn
+</code></p><br><br><h3>机构席位大额买入洋河股份6900万，白酒龙头获长线布局</h3><br><p>安凯客车涨超4.3%，客车出口订单同比增长。<br><br> | 来源：<code>https://432-yinghuang-app.com
+</code></p><br><br><h3>美联储宣布降息50BP超市场预期，全球风险资产暴涨</h3><br><p>阳光电源涨超7%，逆变器海外订单持续超预期。<br><br> | 来源：<code>https://4688tv.com.cn
+</code></p><br><br><h3>京沪高铁路网资产价值：核心高铁线路的长期盈利逻辑</h3><br><p>外资机构席位净买入中国电建1.1亿，绿电运营龙头获外资加仓。<br><br> | 来源：<code>https://51-anwang.com.cn
+</code></p><br><br><h3>外资单日扫货海尔智家8亿，白电龙头外资持仓稳步提升</h3><br><p>重庆洪崖洞暑期客流创新高，网红打卡点日均接待超15万。<br><br> | 来源：<code>https://512vip-kaiyuan-official.com
+</code></p><br><br><h3>石大胜华溶剂技术优势：锂电溶剂细分赛道的龙头价值</h3><br><p>网络游戏管理新规落地，游戏板块情绪修复上涨。<br><br> | 来源：<code>https://51chi-guawang.com.cn
+</code></p><br><br><h3>招商银行放量上涨3.0%，净息差边际企稳</h3><br><p>中国女子曲棍球队闯入世界联赛总决赛，实力稳步回升。<br><br> | 来源：<code>https://51chiguayuming.com.cn
+</code></p><br><br><h3>贵州茅台站稳年线，趋势反转信号逐步确认</h3><br><p>百亿私募组团调研光模块企业，1.6T产品送样海外客户。<br><br> | 来源：<code>https://51dashijian.com.cn
+</code></p><br><br><h3>市场永远不缺机会，缺的是耐心等待属于自己的机会</h3><br><p>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%。<br><br> | 来源：<code>https://51hei-liao.com.cn
+</code></p><br><br><h3>谷爱凌复出参加世锦赛，斩获自由式滑雪U型场地金牌</h3><br><p>韦尔股份异动拉升5.1%，CIS芯片需求回暖。<br><br> | 来源：<code>https://52-pojie.com.cn
+</code></p><br><br><h3>全国城市节水型社会建设达标率达85%，用水效率提升</h3><br><p>中国手球俱乐部首次获得亚洲冠军，项目发展迎来新机遇。<br><br> | 来源：<code>https://52662-dingsheng-official.com
+</code></p><br><br><h3>九寨沟暑期恢复全部开放，单日接待游客量突破4万</h3><br><p>宇通客车海外出口翻倍，前三季度业绩预增超50%。<br><br> | 来源：<code>https://6686-online-login.com
+</code></p><br><br><h3>科大讯飞AI技术落地：从技术研发到商业化变现的拐点</h3><br><p>医疗器械创新绿色通道，创新器械板块异动。<br><br> | 来源：<code>https://728-android-old.com
+</code></p><br><br><h3>机构席位大额买入拓普集团9200万，零部件龙头获长线布局</h3><br><p>西湖暑期游客量突破600万人次，免费景区持续释放民生红利。<br><br> | 来源：<code>https://800-quanxun-baicai.com
+</code></p><br><br><h3>恒瑞医药异动拉升5.6%，创新药新品贡献增量</h3><br><p>天齐锂业锂价反弹，单季业绩预告环比大增。<br><br> | 来源：<code>https://8268-caipiao-official.com
+</code></p><br><br><h3>西藏暑期游客量突破200万人次，高原旅游热度创新高</h3><br><p>文化产业扶持政策，文化传媒板块全线异动。<br><br> | 来源：<code>https://850-official-old.com
+</code></p><br><br><h3>文化产业扶持政策，文化传媒板块全线异动</h3><br><p>海天味业调味品动销超预期，单季业绩预告超预期。<br><br> | 来源：<code>https://850-version-new.com
+</code></p><br><br><h3>国产历史剧细节考究，多部作品成为全网热议文化现象</h3><br><p>产业基金大手笔增持国产EDA企业，助力核心技术研发突破。<br><br> | 来源：<code>https://8866h-cc-vip.com
+</code></p><br><br><h3>全国体育产业总规模上半年突破1.5万亿元，赛事经济火热</h3><br><p>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增。<br><br> | 来源：<code>https://8868-app-vip.com
