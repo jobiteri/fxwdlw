@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>江铃汽车异动拉升4.2%，轻卡新能源化加速</h3><br><p>存款利率市场化调整机制优化，银行负债端成本进一步压降。<br><br> | 来源：<code>https://baisijurumeinu.com.cn
+</code></p><br><br><h3>安凯客车涨超4.3%，客车出口订单同比增长</h3><br><p>存款利率下调推动居民储蓄搬家，权益市场增量资金入场。<br><br> | 来源：<code>https://baisiluoli.com.cn
+</code></p><br><br><h3>五粮液重回165元，中秋旺季备货提前启动</h3><br><p>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长。<br><br> | 来源：<code>https://baleshipinwuwuzaixianguankan.cn
+</code></p><br><br><h3>长安汽车涨停封板，突破后的延续性如何判断</h3><br><p>超190家机构到访储能电池标的，海外户储订单超预期。<br><br> | 来源：<code>https://bandao-sports-pro.com.cn
+</code></p><br><br><h3>亿纬锂能海外布局：规避贸易壁垒的产能建设逻辑</h3><br><p>中兴通讯沿趋势线上行，通信板块的轮动机会。<br><br> | 来源：<code>https://baoyu-shipin.com.cn
+</code></p><br><br><h3>国内民宿市场规模破万亿，精品民宿均价同比上涨20%</h3><br><p>腾讯云大模型生态开放，接入超十万第三方应用。<br><br> | 来源：<code>https://baoyu-tv.com.cn
+</code></p><br><br><h3>全国长江十年禁渔成效显著，水生生物资源逐步恢复</h3><br><p>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放。<br><br> | 来源：<code>https://baoyu-wangzhan.com.cn
+</code></p><br><br><h3>锂价连续反弹15%，锂矿板块迎来趋势性行情启动</h3><br><p>派能科技户用储能爆发，单季业绩预告超预期。<br><br> | 来源：<code>https://baoyuguanwang.com.cn
+</code></p><br><br><h3>福耀玻璃全球汽车玻璃布局：细分赛道全球龙头的壁垒</h3><br><p>市场永远不缺机会，缺的是耐心等待属于自己的机会。<br><br> | 来源：<code>https://baoyushipin.com.cn
+</code></p><br><br><h3>全国运动康复中心超万家，运动损伤诊疗体系逐步完善</h3><br><p>服务机器人试点政策落地，家用机器人标的异动。<br><br> | 来源：<code>https://baoyutv.com.cn
+</code></p><br><br><h3>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一</h3><br><p>QFII集中调研医药流通龙头，院外市场拓展节奏披露。<br><br> | 来源：<code>https://baoyutvtiaozhuan.com.cn
+</code></p><br><br><h3>政策性银行加大降息力度，基建项目融资成本大幅下降</h3><br><p>页岩气勘探开发政策，页岩气开采板块走强。<br><br> | 来源：<code>https://baoyuwangzhan.com.cn
+</code></p><br><br><h3>上海建工城市更新布局：上海本地基建龙头的区域优势</h3><br><p>西部大开发新十年规划发布，补齐区域发展短板。<br><br> | 来源：<code>https://baoyuwangzhifabu.com.cn
+</code></p><br><br><h3>阳光电源异动拉升6.6%，储能逆变器份额全球第一</h3><br><p>隆基绿能光伏技术迭代：HPBC+TOPCon的技术领先性。<br><br> | 来源：<code>https://baoyuwangzhiyuming.com.cn
+</code></p><br><br><h3>重庆洪崖洞暑期日均游客量突破25万人次，网红城市持续火爆</h3><br><p>外资机构席位净买入先导智能8600万，锂电设备龙头加仓。<br><br> | 来源：<code>https://baoyuzuixinyumingchaxun.com.cn
+</code></p><br><br><h3>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商</h3><br><p>全国居民储蓄存款增速放缓，资金向消费和投资领域转移。<br><br> | 来源：<code>https://bb-caipiao-app.com
+</code></p><br><br><h3>北向资金大额扫货天合光能7100万，光伏龙头获外资流入</h3><br><p>全国小微企业贷款余额突破60万亿元，融资成本进一步下降。<br><br> | 来源：<code>https://bb-sports-hub.com.cn
+</code></p><br><br><h3>国内大模型集中落地，AI办公标的迎来估值修复</h3><br><p>2026年体育强国建设成效显著，全民健身与全民健康深度融合。<br><br> | 来源：<code>https://bb-sports-net.com.cn
+</code></p><br><br><h3>中国男子皮划艇队世锦赛夺冠，静水项目实现金牌零突破</h3><br><p>宁沪高速涨超2.5%，公路车流量持续复苏。<br><br> | 来源：<code>https://bb-sports-pro.com.cn
+</code></p><br><br><h3>全国国家森林公园数量增至1000个，生态旅游蓬勃发展</h3><br><p>电阻产品价格上调4%，被动元件板块迎来行情。<br><br> | 来源：<code>https://bb-sports-zone.com.cn
