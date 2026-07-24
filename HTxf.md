@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分01秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>农业机械化推广政策，农机装备板块全线异动</h3><br><p>国电南瑞电网自动化优势：国内电网信息化龙头的价值。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>海缆价格上调5%，海缆龙头订单盈利弹性提升</h3><br><p>全国公立医院绩效考核连续5年提升，医疗服务质量持续改善。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>长缆科技异动拉升4.3%，高压电缆需求回暖</h3><br><p>百度智能云大模型平台开放，百万开发者接入生态。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>全国滑板锦标赛举办，年轻选手展现街头运动活力</h3><br><p>英国经济止跌回升，二季度GDP同比增长0.6%。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>AI智能写作工具普及，内容创作者产出效率提升2倍</h3><br><p>招商银行零售银行优势：高ROE背后的经营质量解析。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>招商银行沿20日均线上行，稳健标的的持仓节奏</h3><br><p>存量房贷利率批量下调，银行板块短期冲击可控。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>亨通光电海缆业务放量，前三季度业绩预增超45%</h3><br><p>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>头部机构组团到访医美耗材龙头，新品获批进度超预期</h3><br><p>美联储降息周期开启，北向资金持续流入核心资产。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>QFII大幅加仓低空经济龙头，单季度持股翻倍引市场关注</h3><br><p>全国儿童青少年近视率同比下降2%，视力防控成效显现。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>定向降息支持绿色电力，绿电运营板块获定向利好</h3><br><p>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>全国急救培训覆盖超亿人次，公共场所AED设备配置率达90%</h3><br><p>璞泰来涨超5.0%，负极材料行业格局优化。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>特斯拉4680电池量产提速，锂电结构件标的集体上涨</h3><br><p>宠物友好景区数量破千，携宠出游成为家庭消费新选择。<br><br> | 来源：<code>www.shutaotc.cn
+</code></p><br><br><h3>多氟多六氟磷酸锂布局：锂电材料细分龙头的周期成长</h3><br><p>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>外资机构集中调研短视频出海标的，海外用户规模破亿</h3><br><p>全国县域经济百强榜发布，东部地区占比超七成。<br><br> | 来源：<code>www.toolzhe.cn
+</code></p><br><br><h3>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发</h3><br><p>算力需求持续高增：IDC、光模块、服务器的产业链机会。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>长三角一体化新规划落地，长三角本地股集体拉升</h3><br><p>全国博物馆总数突破6500家，年接待观众超12亿人次。<br><br> | 来源：<code>www.ahhaiquan.cn
+</code></p><br><br><h3>上汽集团放量上涨3.5%，新能源汽车出口超预期</h3><br><p>阿里通义千问3.0版本上线，代码生成能力超越国际同类产品。<br><br> | 来源：<code>www.3excel.cn
+</code></p><br><br><h3>多地推出“文旅+农业”融合项目，采摘游订单同比增长80%</h3><br><p>大模型在交通领域应用，城市拥堵率下降20%。<br><br> | 来源：<code>www.81988888.cn
+</code></p><br><br><h3>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序</h3><br><p>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓。<br><br> | 来源：<code>zhongyichufang.cn
+</code></p><br><br><h3>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌</h3><br><p>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心。<br><br> | 来源：<code>muzhien.cn
