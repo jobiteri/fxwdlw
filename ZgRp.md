@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>机构资金集中买入特变电工4900万，新能源龙头获抱团</h3><br><p>天齐锂业触底反弹，超跌后的修复空间测算。<br><br> | 来源：<code>https://huanggua-shipin.cn
+</code></p><br><br><h3>美联储连续第二次降息，北向资金单日净流入超百亿</h3><br><p>西班牙经济增速达2.8%，南欧经济表现亮眼。<br><br> | 来源：<code>https://huanggua-shipin.com.cn
+</code></p><br><br><h3>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%</h3><br><p>固德威户用储能布局：储能赛道细分龙头的成长路径。<br><br> | 来源：<code>https://huanggua-shipinxiazai.com.cn
+</code></p><br><br><h3>中国台球选手世锦赛夺冠，斯诺克运动中国力量持续崛起</h3><br><p>当升科技正极材料海外布局：高镍正极的全球份额扩张。<br><br> | 来源：<code>https://huanggua-wangzhan.com.cn
+</code></p><br><br><h3>北向资金大额扫货恩捷股份1.4亿，隔膜龙头获外资流入</h3><br><p>机器人减速器标的启动申购，谐波减速器国产替代率突破50%。<br><br> | 来源：<code>https://huangguachuanmei.com.cn
+</code></p><br><br><h3>社保基金新进重仓股，社保持仓标的集体异动</h3><br><p>工业母机龙头登陆北交所，五轴机床市占率国内第一。<br><br> | 来源：<code>https://huangguanqiutan.com.cn
+</code></p><br><br><h3>全球循环经济市场规模突破5万亿美元，资源利用效率提升</h3><br><p>社保基金新进锂电回收龙头，布局循环经济高景气赛道。<br><br> | 来源：<code>https://huangguashipinwangyeban.com.cn
+</code></p><br><br><h3>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性</h3><br><p>两融余额创阶段新高，券商杠杆业务标的异动。<br><br> | 来源：<code>https://huangguashipinzaixianguankan.cn
+</code></p><br><br><h3>1年期LPR下调10BP，实体经济融资成本进一步下行</h3><br><p>北向资金单日净流入超150亿，降息后外资加速入场。<br><br> | 来源：<code>https://huangguavideos.cn
+</code></p><br><br><h3>旅游服务质量提升政策，景区旅游板块走强</h3><br><p>上半年全国文旅消费总额突破3万亿元，同比增长22%。<br><br> | 来源：<code>https://huangguazhibo.com.cn
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>宁德时代客户结构优势：全球主流车企的深度绑定逻辑。<br><br> | 来源：<code>https://huangse-youxi.com.cn
+</code></p><br><br><h3>知名私募大手笔增持乳制品龙头，持仓占比达3.5%</h3><br><p>北向资金连续增持核电设备龙头，近1月持仓增幅超25%。<br><br> | 来源：<code>https://huangyewangzhan.cn
+</code></p><br><br><h3>全国职业病防治体系完善，劳动者健康权益得到全面保障</h3><br><p>芬兰经济走出衰退，绿色技术产业拉动复苏。<br><br> | 来源：<code>https://huangyou-tuijian.com.cn
+</code></p><br><br><h3>中国通号高铁信号订单高增，单季业绩预告超预期</h3><br><p>全国森林覆盖率提升至24.5%，年新增造林面积超600万公顷。<br><br> | 来源：<code>https://huangyou-wangzhan.com.cn
+</code></p><br><br><h3>全国三北工程六期启动，规划造林超1000万公顷</h3><br><p>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧。<br><br> | 来源：<code>https://huangyou-zuofang.com.cn
+</code></p><br><br><h3>苏州园林暑期游客量突破150万人次，江南古典园林游受青睐</h3><br><p>大模型在能源领域应用，电网调度效率提升25%。<br><br> | 来源：<code>https://huangyouquan.com.cn
+</code></p><br><br><h3>东方财富涨超7.1%，基金代销业务环比改善</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>https://huangyoutuijian.com.cn
+</code></p><br><br><h3>葡萄牙经济增速达2.3%，旅游业持续拉动增长</h3><br><p>人民币汇率大幅升值，航空造纸板块集体上涨。<br><br> | 来源：<code>https://huangyoutuijianwangye.com.cn
+</code></p><br><br><h3>山西路桥放量上涨3.2%，山西交通基建投资加码</h3><br><p>美联储降息周期开启，北向资金持续流入核心资产。<br><br> | 来源：<code>https://huangyouwangzhan.com.cn
+</code></p><br><br><h3>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿</h3><br><p>南京夫子庙暑期客流超2000万，秦淮夜游营收同比翻倍。<br><br> | 来源：<code>https://huangyouxiaji.com.cn
