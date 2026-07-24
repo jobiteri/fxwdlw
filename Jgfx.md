@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内主题乐园暑期营收同比增长75%，亲子游成核心主力</h3><br><p>央行表态适时加大政策力度，后续降准降息仍有空间。<br><br> | 来源：<code>https://dumoguceshixingneng.com.cn
+</code></p><br><br><h3>机构专用席位净买入容百科技8800万，高镍正极龙头加仓</h3><br><p>铜版纸价格单月上涨7%，造纸细分板块迎来行情。<br><br> | 来源：<code>https://eb-official-entry.com
+</code></p><br><br><h3>中国中铁一带一路订单落地，单季业绩预告超预期</h3><br><p>东方电缆海缆订单爆发，前三季度业绩预增超70%。<br><br> | 来源：<code>https://ebpay-official-download.com
+</code></p><br><br><h3>东北振兴新举措出台，推动老工业基地产业转型升级</h3><br><p>外资准入政策放宽，外资偏好标的全线拉升。<br><br> | 来源：<code>https://eluosi-mama.com.cn
+</code></p><br><br><h3>超210家机构到访AI安防龙头，海外政府订单同比大增</h3><br><p>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色。<br><br> | 来源：<code>https://eluosimama.com.cn
+</code></p><br><br><h3>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%</h3><br><p>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录。<br><br> | 来源：<code>https://erqiang-ru-yi-dong-su-xiao-yue-xiaoshuo.com.cn
+</code></p><br><br><h3>铁矿石价格反弹10%，铁矿上市公司盈利边际改善</h3><br><p>自驾游市场上半年订单同比增长55%，房车旅行成为新选择。<br><br> | 来源：<code>https://fabuyelanse.com.cn
+</code></p><br><br><h3>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>https://fandaoai.cn
+</code></p><br><br><h3>湖南投资涨超2.1%，长沙路桥业务持续向好</h3><br><p>全面降准0.25个百分点，释放长期资金5000亿。<br><br> | 来源：<code>https://fanhao-ku.com.cn
+</code></p><br><br><h3>头部券商到访游戏出海龙头，海外流水增速数据首次公开</h3><br><p>养老金现身特高压龙头调研，海外工程落地节奏引热议。<br><br> | 来源：<code>https://feifan-ent-pro.com.cn
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>大北农异动拉升3.7%，种业业务贡献新增量。<br><br> | 来源：<code>https://feiji-bei.com.cn
+</code></p><br><br><h3>焦炭价格开启第五轮提涨，焦化板块盈利迎来改善</h3><br><p>北向资金大额增持五粮液，白酒龙头外资持仓环比提升。<br><br> | 来源：<code>https://feilubin-chire-zhi-ye-dianying.com.cn
+</code></p><br><br><h3>客家文化申遗工作推进，千年迁徙文化得到系统性保护</h3><br><p>沪股通席位单日买入中国平安4亿，大金融龙头获外资增持。<br><br> | 来源：<code>https://feixiongbaozangku.com.cn
+</code></p><br><br><h3>海康威视涨超4.7%，AI安防业务收入增速回升</h3><br><p>人民币对美元汇率升值至6.7关口，外汇储备规模稳定在3.3万亿美元。<br><br> | 来源：<code>https://feng-jian-you-mei.com.cn
+</code></p><br><br><h3>中国皮划艇队世锦赛斩获3金，静水项目优势持续扩大</h3><br><p>中国男子帆船队亚运会夺冠，水上项目实现新突破。<br><br> | 来源：<code>https://feng-jian.com.cn
+</code></p><br><br><h3>外资准入政策放宽，外资偏好标的全线拉升</h3><br><p>许继电气异动拉升4.2%，特高压订单持续落地。<br><br> | 来源：<code>https://fenghuangsaishi.com.cn
+</code></p><br><br><h3>央行表态加大逆周期调节，后续仍有降准降息空间</h3><br><p>天合光能放量上涨5.5%，N型组件渗透率持续提升。<br><br> | 来源：<code>https://fenglouxinxi.cn
+</code></p><br><br><h3>5年期LPR超预期下调，房企融资环境边际改善</h3><br><p>国电南瑞电网自动化高增，单季业绩预告超预期。<br><br> | 来源：<code>https://fengyuling.com.cn
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>山西汾酒涨超5.1%，青花系列全国化推进加速。<br><br> | 来源：<code>https://free-zaixian-cheng-web.com.cn
+</code></p><br><br><h3>阳光电源技术迭代能力：逆变器龙头的全球竞争力</h3><br><p>隆基绿能底部抬升，上升通道内的低吸窗口显现。<br><br> | 来源：<code>https://fujianu-jiejie-weiba-dongman.com.cn
