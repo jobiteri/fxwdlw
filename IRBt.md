@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 16时19分39秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>功率半导体价格上调6%，IGBT板块迎来涨价催化</h3><br><p>科大讯飞高位震荡，分歧阶段的关键位与风控思路。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>中国中车全球轨交布局：一带一路下的海外订单增长逻辑</h3><br><p>国内多模态大模型实现3D场景实时渲染，元宇宙体验升级。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>洽洽食品涨超3.4%，坚果业务收入增速回升</h3><br><p>国内大模型出海东南亚，服务超百万当地企业。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>产业资本集中增持AI教育龙头，付费用户高增获资本布局</h3><br><p>圣邦股份模拟芯片布局：国产模拟芯片龙头的成长路径。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>韦尔股份CIS芯片布局：图像传感器行业的周期与成长</h3><br><p>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>天津建投异动拉升2.8%，天津基建投资持续增长</h3><br><p>定向降准支持县域金融机构，乡村振兴板块迎来利好。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>宁德时代动力电池技术：麒麟电池+M3P的技术领先性</h3><br><p>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>10年期国债收益率下行至2.5%以下，权益资产吸引力提升</h3><br><p>养老金新进AI芯片设计标的，布局大模型推理芯片赛道。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>赣锋锂业回收业务布局：锂电回收的长期成长空间解析</h3><br><p>阳光电源异动拉升6.6%，储能逆变器份额全球第一。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情</h3><br><p>知名私募组团调研MR产业链标的，新品备货数据曝光。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>上半年全国汽车出口突破230万辆，连续3年位居全球第一</h3><br><p>外资机构集中调研短视频出海标的，海外用户规模破亿。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>神州高铁放量上涨3.7%，轨道交通运维业务增长</h3><br><p>机构资金集中买入阳光电源3.8亿，逆变器龙头获机构抱团。<br><br> | 来源：<code>www.shutaotc.cn
+</code></p><br><br><h3>中超联赛场均上座人数突破2.5万，球市全面回暖</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>车联网安全标准出台，车联网板块集体上涨</h3><br><p>西湖暑期游客量突破600万人次，免费景区持续释放民生红利。<br><br> | 来源：<code>www.toolzhe.cn
+</code></p><br><br><h3>全国羽毛球业余赛参赛人数破50万，民间高手层出不穷</h3><br><p>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>全国文旅数字化升级，超500家景区实现AR导览全覆盖</h3><br><p>1年期LPR下调5BP，实体经济融资成本稳步下行。<br><br> | 来源：<code>www.ahhaiquan.cn
+</code></p><br><br><h3>海绵城市建设推广，海绵城市板块集体上涨</h3><br><p>存款利率下调推动居民储蓄搬家，权益市场增量资金入场。<br><br> | 来源：<code>www.3excel.cn
+</code></p><br><br><h3>三一重工全球化布局：工程机械龙头的海外市场拓展</h3><br><p>派能科技户用储能电池技术：全球户用储能龙头的壁垒。<br><br> | 来源：<code>www.81988888.cn
+</code></p><br><br><h3>新希望生猪出栏高增，单季业绩预告环比减亏</h3><br><p>多地优化楼市限购政策，取消二环外住房限购限制。<br><br> | 来源：<code>zhongyichufang.cn
+</code></p><br><br><h3>高管团队集体增持工业AI龙头，合计增持金额超2.3亿</h3><br><p>上半年全国锂电池出口同比增长32%，新能源产品出口亮眼。<br><br> | 来源：<code>muzhien.cn
