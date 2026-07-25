@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 14时31分32秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算</h3><br><p>北向资金大额扫货天合光能7100万，光伏龙头获外资流入。<br><br> | 来源：<code>cqxsx.cn
+</code></p><br><br><h3>武当山暑期游客量突破120万人次，道教文化游持续升温</h3><br><p>登海种业放量上涨4.0%，玉米种子需求持续向好。<br><br> | 来源：<code>gmsz.cn
+</code></p><br><br><h3>全国绿色出行创建行动推进，超百个城市建成绿色交通体系</h3><br><p>深股通席位单日买入海天味业6100万，调味品标的增持。<br><br> | 来源：<code>www.mgyou.com
+</code></p><br><br><h3>大北农种业布局：转基因商业化下的种业龙头成长逻辑</h3><br><p>中非合作论坛新举措落地，千个合作项目集中启动。<br><br> | 来源：<code>www.zdxtz.com
+</code></p><br><br><h3>AI代码助手普及，程序员开发效率平均提升40%</h3><br><p>美的集团股价创年内新高，家电出口数据亮眼。<br><br> | 来源：<code>www.duioo.com
+</code></p><br><br><h3>药明康德单日涨超5%，CXO板块迎来情绪拐点</h3><br><p>全国城市建成区绿化覆盖率达42%，人均公园绿地面积15平方米。<br><br> | 来源：<code>www.zheejia.com
+</code></p><br><br><h3>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定</h3><br><p>亿纬锂能换手率超3%，量能放大下的资金动向解析。<br><br> | 来源：<code>www.kingslawfirm.com
+</code></p><br><br><h3>全球生物医药市场规模突破1.8万亿美元，创新药研发加速</h3><br><p>中国平安权重护盘，大金融板块托底A股指数。<br><br> | 来源：<code>www.longnancun.com
+</code></p><br><br><h3>全国研究生考试报名人数首次回落，就业导向成为报考主流</h3><br><p>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露。<br><br> | 来源：<code>www.ym5184.com
+</code></p><br><br><h3>降准降息组合拳落地，大金融板块率先迎来行情催化</h3><br><p>地方国资战略入股氢能燃料电池标的，助力商用车推广落地。<br><br> | 来源：<code>www.lvyuepai.com
+</code></p><br><br><h3>预制菜产业标准出台，预制菜板块走强</h3><br><p>粤港澳大湾区政策升级，湾区地产基建标的走强。<br><br> | 来源：<code>www.youngstrong.cn
+</code></p><br><br><h3>长城国家文化公园建设完工，沿线游览步道贯通超万公里</h3><br><p>大模型在航空领域应用，飞行模拟训练效率提升30%。<br><br> | 来源：<code>www.41yvs.cn
+</code></p><br><br><h3>西班牙经济增速达2.8%，南欧经济表现亮眼</h3><br><p>湖南投资涨超2.1%，长沙路桥业务持续向好。<br><br> | 来源：<code>www.hospitalcdm.cn
+</code></p><br><br><h3>上半年全国软件业营收同比增长11.8%，数字产业持续向好</h3><br><p>国际地缘与全球经济（100条）。<br><br> | 来源：<code>www.mayilt.cn
+</code></p><br><br><h3>固态电池试点线投产，固态电池产业链集体异动</h3><br><p>国家版本馆全部建成开放，典藏中华文脉珍贵资源。<br><br> | 来源：<code>www.ebtea.cn
+</code></p><br><br><h3>多地出台民宿管理新规，规范行业发展保障游客权益</h3><br><p>宇通客车海外出口翻倍，前三季度业绩预增超50%。<br><br> | 来源：<code>www.seodoc.cn
+</code></p><br><br><h3>人民币汇率阶段性贬值，出口导向型标的异动</h3><br><p>鸭肉价格上涨12%，水禽养殖板块迎来行情。<br><br> | 来源：<code>www.skillrace.cn
+</code></p><br><br><h3>广深铁路放量上涨3.1%，铁路客运收入回暖</h3><br><p>长白山暑期避暑游热度高，日均接待游客超2万人次。<br><br> | 来源：<code>www.bibistar.cn
+</code></p><br><br><h3>亚星客车放量上涨3.9%，新能源客车盈利改善</h3><br><p>吉利汽车新能源转型路径：传统车企电动化的成功案例。<br><br> | 来源：<code>www.jingnews.cn
+</code></p><br><br><h3>隆基绿能底部抬升，上升通道内的低吸窗口显现</h3><br><p>全国臭氧浓度同比下降5%，夏季蓝天数量明显增加。<br><br> | 来源：<code>www.hrnhug.cn
