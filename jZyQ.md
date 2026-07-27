@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分36秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>派能科技涨超7.5%，户用储能电池订单饱满</h3><br><p>武汉长江灯光秀暑期上新，吸引超千万游客观赏打卡。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>中际旭创光模块技术优势：全球数通市场的份额扩张</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>基金公司集体到访氢能龙头，燃料电池车推广进度超预期</h3><br><p>小米汽车交付量超预期，小米汽车产业链全线爆发。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>国家版本馆全部建成开放，典藏中华文脉珍贵资源</h3><br><p>中国马术队首次获得亚运会金牌，马术运动实现零的突破。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>上合组织峰会召开，新增3个成员国组织规模进一步扩大</h3><br><p>慢就是快：在高确定性标的上持仓，远比追热点赚得稳。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>北向资金单日买入福耀玻璃7200万，玻璃龙头获外资持续流入</h3><br><p>结构性降息精准支持制造业，高端制造板块获定向利好。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>先导智能技术积累：锂电设备全球龙头的核心竞争力</h3><br><p>山东高速放量上涨2.7%，路网资产盈利稳健。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>外资持续流入万科A，地产龙头外资持仓占比突破2%</h3><br><p>全国公积金贷款政策优化，支持居民合理住房需求。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>金砖国家新开发银行新增贷款规模突破500亿美元</h3><br><p>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>全国雪豹种群数量突破5000只，高原生态系统健康稳定</h3><br><p>赣粤高速涨超2.3%，江西区域车流量稳步提升。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>白酒行业产业政策引导，高端白酒板块集体上涨</h3><br><p>正泰电器户用光伏优势：分布式光伏龙头的渠道壁垒。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>长安汽车新能源盈利转正，单季净利润同比增200%</h3><br><p>外资机构席位净买入双汇发展6400万，肉制品龙头获加仓。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>杀菌剂价格上调10%，农药细分板块迎来行情</h3><br><p>中微公司放量拉升6.2%，刻蚀设备订单持续落地。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>山西汾酒全国化路径：清香型白酒龙头的全国扩张逻辑</h3><br><p>华友钴业异动拉升5.3%，新能源金属需求回暖。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>比亚迪AH股同步走强，新能源整车板块领涨两市</h3><br><p>中国平安寿险改革成效：新业务价值增速转正的底层逻辑。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>降准释放资金定向支持基建，基建板块迎来流动性利好</h3><br><p>美的集团全球化运营：家电龙头的海外市场拓展逻辑。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>养老金现身创新器械标的，海外FDA获批进度超预期</h3><br><p>杭州马拉松开跑，3.5万跑者体验钱塘江赛道。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>猪肉价格触底反弹，生猪养殖标的集体走强</h3><br><p>全国城市黑臭水体治理完成率100%，居民亲水空间增加。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>AI翻译工具支持百种语言实时互译，准确率超专业译员</h3><br><p>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>国际金价创历史新高，黄金珠宝标的集体上涨</h3><br><p>外资机构席位净买入双汇发展6400万，肉制品龙头获加仓。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>5年期LPR下调带动居民购房意愿回升，地产销售边际改善</h3><br><p>知名私募大手笔增持TOPCon电池标的，持仓占比达4%。<br><br> | 来源：<code>www.bjgengke.com
