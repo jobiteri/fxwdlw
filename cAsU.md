@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分33秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>上半年全国航空航天制造业营收同比增长22%</h3><br><p>五粮液批价上行逻辑：渠道库存优化下的价格体系修复。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>宁德时代单日大涨6.2%，动力电池赛道迎来集体反弹</h3><br><p>赣锋锂业技术储备：固态电池商业化的领先优势。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>保险资管举牌机器人减速器标的，核心零部件获机构重仓</h3><br><p>中国五子棋队世锦赛包揽金牌，智力运动版图持续扩大。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>药明康德单日涨超5%，CXO板块迎来情绪拐点</h3><br><p>中药配方颗粒政策放开，中药板块集体走强。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>恒瑞医药创新药放量，前三季度业绩预增超40%</h3><br><p>存储芯片价格连续上涨12%，存储板块迎来趋势性行情。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>华北高速涨超1.9%，京津冀路网业务稳健</h3><br><p>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>中兴通讯通信技术积累：6G时代的核心竞争力展望</h3><br><p>赣锋锂业固态电池贡献增量，前三季度业绩预增70%。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>中德经贸论坛举办，双方达成百项合作协议</h3><br><p>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>被动元器件价格集体上涨，电子板块盈利边际改善</h3><br><p>全国绿色供应链示范企业超千家，带动上下游产业低碳转型。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>云从科技人机协同大模型3.0发布，赋能人机交互场景</h3><br><p>中国围棋队包揽亚运会全部金牌，延续项目统治力。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>全国江豚种群数量突破2000头，长江微笑天使重现</h3><br><p>电源芯片价格上涨7%，模拟芯片板块景气回升。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>天然气价格季节性上涨15%，燃气运营板块迎来行情</h3><br><p>中国短道速滑队世锦赛斩获4金，冰上项目实力稳固。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算</h3><br><p>国产AI芯片算力突破256TOPS，支撑大模型高效运行。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>被动元器件价格集体上涨，电子板块盈利边际改善</h3><br><p>除草剂价格单月上涨15%，农药龙头盈利修复超预期。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价</h3><br><p>海参价格单月上涨18%，海产养殖龙头盈利提升。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>乡村振兴政策加码，农业农村板块集体上涨</h3><br><p>国产大模型出海加速，东南亚市场份额突破30%。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>汽车大模型落地智能座舱，语音交互响应速度低于1秒</h3><br><p>全国PPI同比由负转正，工业企业盈利预期持续改善。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>QFII集中调研医药流通龙头，院外市场拓展节奏披露。<br><br> | 来源：<code>www.jieruit.com
