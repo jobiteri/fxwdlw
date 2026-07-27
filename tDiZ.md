@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>梅西领衔阿根廷队来华友谊赛3-1取胜，现场超5万球迷观赛</h3><br><p>江苏建工放量上涨3.3%，江苏区域基建投资回暖。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>中芯国际放量拉升7.1%，半导体国产替代逻辑再强化</h3><br><p>外资资管集中调研跨境电商龙头，出口增速数据首次公开。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑</h3><br><p>恒瑞医药异动拉升5.6%，创新药新品贡献增量。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>韦尔股份CIS芯片需求回暖，单季业绩预告扭亏</h3><br><p>世界文化遗产新增2处，我国世遗总数增至60处。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>外资持续流入浪潮信息，AI服务器龙头外资持仓占比突破3%</h3><br><p>温氏股份放量上涨4.2%，养殖业务盈利持续修复。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>民宿行业规范发展政策，乡村旅游标的全线拉升</h3><br><p>百亿私募组团调研光模块企业，1.6T产品送样海外客户。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>电源芯片价格上涨7%，模拟芯片板块景气回升</h3><br><p>外资持续流入浪潮信息，AI服务器龙头外资持仓占比突破3%。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>中芯国际晶圆制造国产替代：14nm及以下制程的突破路径</h3><br><p>韦尔股份CIS芯片需求回暖，单季业绩预告扭亏。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>公募基金集中调研电力现货交易标的，交易系统订单翻倍</h3><br><p>杀虫剂价格上涨12%，农化产业链景气回升。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户</h3><br><p>产业资本集中增持AI教育龙头，付费用户高增获资本布局。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>地方国资战略入股氢能燃料电池标的，助力商用车推广落地</h3><br><p>全国博物馆总数突破6500家，年接待观众超12亿人次。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国商品房销售面积同比由负转正，市场信心逐步恢复</h3><br><p>北向资金大额增持长安汽车，自主车企外资持仓创年内新高。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>希腊经济强劲复苏，成为欧元区增长明星</h3><br><p>北向资金大额增持天齐锂业，锂矿龙头外资持仓环比大增。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>恒瑞医药创新药管线：国内创新药龙头的研发投入回报</h3><br><p>全国居民人均体育消费支出同比增长15%，运动成为生活方式。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升</h3><br><p>招商银行净息差企稳，前三季度业绩预增超15%。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>中际旭创再创阶段新高，趋势加速下的持仓策略</h3><br><p>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>游资知名席位联手买入登海种业5600万，种业标的获追捧</h3><br><p>外资机构集中调研跨境支付标的，海外结算规模环比大增。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>沪硅产业涨超5.8%，12英寸硅片产能持续释放</h3><br><p>产业基金大手笔增持国产EDA企业，助力核心技术研发突破。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>粤高速A异动拉升2.6%，大湾区车流量高增</h3><br><p>房贷利率下调后二手房成交回暖，家居家电需求回升。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>全国夜间文旅消费集聚区破200个，点亮城市夜经济</h3><br><p>全国公共图书馆年流通人次突破10亿，全民阅读氛围浓厚。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>实控人邀约收购中药创新药企业，溢价35%发起全面要约</h3><br><p>中国门球队世锦赛夺得冠军，中老年运动项目国际领先。<br><br> | 来源：<code>www.79lr.com
