@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>10年期国债收益率下行至2.5%以下，权益资产吸引力提升</h3><br><p>海尔智家高端化布局：白电龙头的品牌溢价能力。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>牧原股份涨超4.7%，生猪价格周期拐点显现</h3><br><p>中国船舶涨超4.5%，造船行业订单持续饱满。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>宠物食品企业开启新股申购，海外自主品牌占比突破40%</h3><br><p>金融大模型赋能投研，AI研报生成效率提升5倍。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>百亿私募组团调研6G通信企业，技术试验进度超市场预期</h3><br><p>西安大唐不夜城暑期日均游客量突破30万人次，夜间文旅火爆。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>中国女子篮球WNBA选手韩旭率队闯入季后赛，表现惊艳</h3><br><p>全国古籍保护工程完成，超3000万册古籍得到妥善修复。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>国产EDA工具实现全流程覆盖，半导体软件标的走强。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>宝钢股份绿色低碳优势：钢铁行业碳中和下的领先地位</h3><br><p>百亿级机构组团到访低空经济龙头，低空试飞进展获披露。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>汉缆股份涨超3.9%，电网投资带动订单增长</h3><br><p>NBA总决赛凯尔特人4-2夺冠，塔图姆全票当选FMVP。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>黄河流域生态保护取得阶段性成效，水质优良比例达92%</h3><br><p>新能源汽车出口数据翻倍，整车出口标的集体异动。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>温氏股份放量上涨4.2%，养殖业务盈利持续修复</h3><br><p>农村物流体系建设规划，乡村物流标的全线异动。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张</h3><br><p>白银价格单月上涨12%，贵金属板块集体异动。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>风电塔筒价格单月上涨6%，风电制造环节盈利改善</h3><br><p>大金重工放量上涨5.7%，风电塔筒全球份额领先。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>长三角一体化发展新规划发布，打造世界级产业集群</h3><br><p>东方电缆海缆技术壁垒：深海海缆的国产替代领先地位。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>房地产市场新政落地，多地首套房贷款利率降至3.2%以下</h3><br><p>亿纬锂能放量上涨6.4%，储能电池出货量翻倍。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>国内动漫文旅融合项目爆发，动漫主题乐园暑期营收破百亿</h3><br><p>江特电机锂矿资源优势：云母提锂龙头的盈利弹性解析。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>海螺水泥涨超3.7%，基建投资增速回暖带动需求</h3><br><p>AI办公软件渗透率超60%，成为职场人必备工具。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升</h3><br><p>杭州亚运会一周年纪念活动举办，场馆全年接待健身人次破亿。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>企业中长期贷款增速回升，宽信用效果逐步显现</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>自由贸易试验区扩围，自贸港本地股异动</h3><br><p>全国碳排放权交易市场成交额突破200亿元，碳定价机制完善。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>油气增储上产政策，油气设备板块集体上涨</h3><br><p>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升。<br><br> | 来源：<code>www.tiantian8.com
