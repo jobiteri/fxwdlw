@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分42秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>俄乌冲突交换战俘达成协议，千名被俘人员获释</h3><br><p>央行表态保持流动性合理充裕，后续政策工具储备充足。<br><br> | 来源：<code>https://gao-liujia.com.cn
+</code></p><br><br><h3>特变电工涨超3.3%，新能源业务盈利持续释放</h3><br><p>机构专用席位大额买入招商银行2.5亿，银行龙头获机构增持。<br><br> | 来源：<code>https://gaochaopenshui.net.cn
+</code></p><br><br><h3>机构资金集中买入海大集团6300万，饲料龙头获机构抱团</h3><br><p>美联储第三次降息落地，全球风险偏好显著提升。<br><br> | 来源：<code>https://gaohxiaoshuo.com.cn
+</code></p><br><br><h3>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势</h3><br><p>央行表态适时加大政策力度，后续降准降息仍有空间。<br><br> | 来源：<code>https://gaoqing-wuma.com.cn
+</code></p><br><br><h3>全国东北虎种群数量突破70只，野生虎栖息地持续扩大</h3><br><p>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧。<br><br> | 来源：<code>https://gaoxiao-paihangbang.com.cn
+</code></p><br><br><h3>紫金矿业成本优势：全球铜金龙头的低成本矿产资源储备</h3><br><p>中国与中东欧国家合作升级，互联互通项目持续落地。<br><br> | 来源：<code>https://gay-pian.com.cn
+</code></p><br><br><h3>中通客车异动拉升4.1%，海外市场拓展加速</h3><br><p>头部券商到访游戏出海龙头，海外流水增速数据首次公开。<br><br> | 来源：<code>https://gaypian.com.cn
+</code></p><br><br><h3>万科A存量资产运营：商业地产+物流地产的第二曲线</h3><br><p>国内AI人才培养体系完善，高校新增AI相关专业超千个。<br><br> | 来源：<code>https://gaypian.net.cn
+</code></p><br><br><h3>实控人邀约收购中药创新药企业，溢价35%发起全面要约</h3><br><p>五粮液品牌价值分析：浓香型白酒龙头的估值逻辑。<br><br> | 来源：<code>https://gcxokw.cn
+</code></p><br><br><h3>机构资金联手买入浪潮信息3.3亿，AI服务器龙头获机构抱团</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>https://gebulindedongku.com.cn
+</code></p><br><br><h3>国际铜价持续上行，铜业板块标的全线异动</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>https://geiliziyuanku.net.cn
+</code></p><br><br><h3>全国生态环境监测网络全覆盖，实时数据向公众开放</h3><br><p>美联储降息周期开启，北向资金持续流入核心资产。<br><br> | 来源：<code>https://get-hg-sports.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿</h3><br><p>芬兰经济走出衰退，绿色技术产业拉动复苏。<br><br> | 来源：<code>https://get-kaiyun-app.com.cn
+</code></p><br><br><h3>降准释放长期资金支持基建，建筑板块迎来估值修复</h3><br><p>亚运会赛事热度超预期，体育产业板块全线上涨。<br><br> | 来源：<code>https://gnxzot.cn
+</code></p><br><br><h3>国内大模型产业联盟成立，联合攻关核心技术短板</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>https://go-bb-sports.com.cn
+</code></p><br><br><h3>6G技术研发推进计划，通信设备板块全线异动</h3><br><p>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光。<br><br> | 来源：<code>https://go-caoliushequ.cn
+</code></p><br><br><h3>南京马拉松开跑，选手破3万赛事服务升级体验大幅提升</h3><br><p>降准定向支持科技创新，科技成长板块获流动性利好。<br><br> | 来源：<code>https://go-fuliji.com.cn
+</code></p><br><br><h3>桂林山水暑期游客量突破400万人次，经典景区持续焕发活力</h3><br><p>吉利汽车新能源转型路径：传统车企电动化的成功案例。<br><br> | 来源：<code>https://go-hg-sports.com.cn
+</code></p><br><br><h3>国产悬疑小说出海热销，海外读者追捧中国推理故事</h3><br><p>正泰电器放量上涨3.7%，户用光伏装机量领先。<br><br> | 来源：<code>https://go-jinmantiantang.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研虚拟电厂标的，订单爆发式增长披露</h3><br><p>银保监会出台新政，进一步降低实体经济融资成本。<br><br> | 来源：<code>https://go-jisu-sports.com.cn
