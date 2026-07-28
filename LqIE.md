@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>虚拟电厂建设导则出台，虚拟电厂标的全线拉升</h3><br><p>中国中冶放量上涨2.9%，新能源冶金订单爆发。<br><br> | 来源：<code>https://91-chiguawang.com.cn
+</code></p><br><br><h3>中国跳水队世锦赛包揽全部金牌，梦之队零失误完美收官</h3><br><p>长安汽车涨停封板，自主车企销量超预期引爆行情。<br><br> | 来源：<code>https://91-chuanmei.com.cn
+</code></p><br><br><h3>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现</h3><br><p>洋河股份渠道改革：白酒企业渠道优化的成功案例解析。<br><br> | 来源：<code>https://91-ci-yuan.com.cn
+</code></p><br><br><h3>上海推出“夜生活节”，夜间商户营业额同比增长60%</h3><br><p>京津冀协同发展十周年，区域经济总量突破12万亿元。<br><br> | 来源：<code>https://91-ciyuan.com.cn
+</code></p><br><br><h3>全国光伏装机容量突破9亿千瓦，分布式光伏占比超60%</h3><br><p>浪潮信息放量上涨7.4%，AI服务器出货量超预期。<br><br> | 来源：<code>https://91-com.com.cn
+</code></p><br><br><h3>中际旭创客户优势：全球云厂商的深度绑定合作关系</h3><br><p>全国中华白海豚种群数量突破5000头，近海生态持续改善。<br><br> | 来源：<code>https://91-dapian.com.cn
+</code></p><br><br><h3>猪肉价格触底反弹，生猪养殖标的集体走强</h3><br><p>全国城市餐厨垃圾处理能力突破10万吨/日，资源化利用。<br><br> | 来源：<code>https://91-down.com.cn
+</code></p><br><br><h3>伊利股份乳制品龙头优势：国内乳业龙头的品牌与渠道</h3><br><p>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产。<br><br> | 来源：<code>https://91-guanwang.com.cn
+</code></p><br><br><h3>全国城市轨道交通全部实现电气化，绿色出行比例超70%</h3><br><p>超210家机构到访AI安防龙头，海外政府订单同比大增。<br><br> | 来源：<code>https://91-mianfei.com.cn
+</code></p><br><br><h3>全国体育旅游精品线路超千条，带动沿线经济发展</h3><br><p>国内民宿市场规模破万亿，精品民宿均价同比上涨20%。<br><br> | 来源：<code>https://91-mianfeiban.com.cn
+</code></p><br><br><h3>全国商品房待售面积同比下降4.3%，库存去化周期回归合理区间</h3><br><p>国铁集团旗下标的异动，铁路改革预期持续升温。<br><br> | 来源：<code>https://91-mianfeishipin.com.cn
+</code></p><br><br><h3>海上风电大基地集中开工，海缆产业链标的上涨</h3><br><p>多地推出文旅惠民卡，年卡销量破百万撬动百亿消费。<br><br> | 来源：<code>https://91-mianfeiwang.cn
+</code></p><br><br><h3>锦浪科技海外渠道优势：分布式光伏的全球渠道网络壁垒</h3><br><p>时代新材放量上涨4.0%，轨道交通零部件订单高增。<br><br> | 来源：<code>https://91-mitao.com.cn
+</code></p><br><br><h3>全国船舶排放控制区扩大，海运污染减排成效突出</h3><br><p>地方国资战略入股氢能燃料电池标的，助力商用车推广落地。<br><br> | 来源：<code>https://91-n.cn
+</code></p><br><br><h3>国产航母新进展，军工船舶板块集体异动</h3><br><p>美联储宣布降息50BP超市场预期，全球风险资产暴涨。<br><br> | 来源：<code>https://91-n.com.cn
+</code></p><br><br><h3>中国短道速滑队世锦赛斩获4金，新老交替完成实力回升</h3><br><p>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局。<br><br> | 来源：<code>https://91-shipin.com.cn
+</code></p><br><br><h3>全国工业余热利用项目大规模落地，年节能超千万吨标准煤</h3><br><p>机构专用席位净买入智飞生物8300万，疫苗龙头获长线加仓。<br><br> | 来源：<code>https://91-shipinwang.com.cn
+</code></p><br><br><h3>企业债券融资利率大幅下行，直接融资占比进一步提升</h3><br><p>巴西经济复苏，二季度农业工业双增长。<br><br> | 来源：<code>https://91-shipinwangzhan.com.cn
+</code></p><br><br><h3>中国五子棋队世锦赛包揽金牌，智力运动版图持续扩大</h3><br><p>荣盛石化涨超4.1%，新材料业务贡献新增量。<br><br> | 来源：<code>https://91-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>知名私募大手笔增持储能电池标的，海外户储订单获资本布局</h3><br><p>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心。<br><br> | 来源：<code>https://91-tv.com.cn
