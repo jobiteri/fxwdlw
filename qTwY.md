@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分40秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>特斯拉FSD落地中国，自动驾驶板块集体拉升</h3><br><p>上半年全国铁路固定资产投资完成4500亿元，基建稳步推进。<br><br> | 来源：<code>https://ziweishipin.net.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿</h3><br><p>中兴通讯算力业务爆发，单季净利润同比增80%。<br><br> | 来源：<code>https://zpkaz.cn
+</code></p><br><br><h3>稀土永磁政策红利：行业供需格局优化下的投资机会</h3><br><p>高管团队集体调研后增持冷链物流标的，合计增持超8000万。<br><br> | 来源：<code>https://zqbub.cn
+</code></p><br><br><h3>锰价上涨8%，锰酸锂材料板块迎来行情</h3><br><p>氢能产业中长期规划，氢能源全板块集体上涨。<br><br> | 来源：<code>https://zuixin-wangzhi.com.cn
+</code></p><br><br><h3>科大讯飞教育赛道优势：AI+教育的商业化落地领先性</h3><br><p>金风科技风电装机超预期，前三季度业绩预增超40%。<br><br> | 来源：<code>https://zuixinfabuye.com.cn
+</code></p><br><br><h3>草原生态保护政策，草牧业板块全线拉升</h3><br><p>超280家机构到访工业母机龙头，五轴机床量产进度超预期。<br><br> | 来源：<code>https://zujiaoxiaoshuo.com.cn
+</code></p><br><br><h3>全国校园足球特色校破2万，青少年足球人才储备加厚</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>https://zukongwu.com.cn
+</code></p><br><br><h3>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心</h3><br><p>公募基金集中调研IDC龙头，AI算力上架率创历史新高。<br><br> | 来源：<code>https://zuo-shanai.com.cn
+</code></p><br><br><h3>海缆价格上调5%，海缆龙头订单盈利弹性提升</h3><br><p>全国体育旅游精品线路超千条，带动沿线经济发展。<br><br> | 来源：<code>https://zuoai-shipin.com.cn
+</code></p><br><br><h3>1年期MLF利率下调带动全市场利率下行，债券牛市延续</h3><br><p>海大集团涨超3.5%，饲料业务市占率稳步提升。<br><br> | 来源：<code>https://zuoshanai.com.cn
+</code></p><br><br><h3>农产品深加工扶持政策，农产品加工标的全线拉升</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>https://zuozuomu-ming-xi.com.cn
+</code></p><br><br><h3>吉利汽车放量上涨5.6%，新能源车型占比突破50%</h3><br><p>大秦铁路异动拉升2.8%，煤炭运输量稳步提升。<br><br> | 来源：<code>https://zurbda.cn
+</code></p><br><br><h3>全球5G用户突破30亿，中国市场占比超一半</h3><br><p>故宫博物院暑期门票秒空，日均接待游客突破8万人次。<br><br> | 来源：<code>https://008-pg-official-login.com
+</code></p><br><br><h3>承德避暑山庄暑期日均客流超6万，皇家文旅体验受追捧</h3><br><p>保险资管举牌机器人减速器标的，核心零部件获机构重仓。<br><br> | 来源：<code>https://008pg-guoji-app.com
+</code></p><br><br><h3>MLCC价格单月上涨5%，电容龙头盈利弹性释放</h3><br><p>生猪收储政策启动，养殖板块迎来反弹催化。<br><br> | 来源：<code>https://1024hegongchang.com.cn
+</code></p><br><br><h3>循环经济发展规划，资源回收标的全线拉升</h3><br><p>钙钛矿光伏企业开启新股申购，量产进度领先行业获资金热捧。<br><br> | 来源：<code>https://1024xp.com.cn
+</code></p><br><br><h3>盈利的核心逻辑：在低估时布局，在逻辑兑现时离场</h3><br><p>隆平高科种业龙头优势：国内种业龙头的研发与渠道积累。<br><br> | 来源：<code>https://17-3-guanyu-xing-jiaoyu-xuanchuanpian.com.cn
+</code></p><br><br><h3>亿纬锂能涨超6%，储能业务新增订单持续落地</h3><br><p>QFII大幅加仓低空经济龙头，单季度持股翻倍引市场关注。<br><br> | 来源：<code>https://17c18qicao.com.cn
+</code></p><br><br><h3>涪陵榨菜异动拉升3.8%，产品提价传导顺利</h3><br><p>露营经济上半年市场规模突破300亿元，精致露营成为新趋势。<br><br> | 来源：<code>https://17caowang.com.cn
+</code></p><br><br><h3>1年期LPR下调10BP，实体经济融资成本进一步下行</h3><br><p>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励。<br><br> | 来源：<code>https://17capcc.com.cn
